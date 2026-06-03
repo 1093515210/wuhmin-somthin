@@ -8,3 +8,5 @@ G-Eazy - Scary Nights：藍V和大V尤其像的危險迷幻狂歡。<p>
 MGK - Till I Die：至死不渝的偏執與極端感。<p>
 DAX - Dear Alcohol（收尾）：帶有強烈自我反思與清醒後的沉淪感。<p>
 X中文圈的蓝V像极了美国饶舌艺人G-Eazy，包装得非常炫酷实力远远落后且不知。<p>
+https://x.com/AlexandreA23520/status/2062051437065249170?s=20   X  疯人院<P>
+https://x.com/AlexandreA23520/status/2062111533493309524?s=20 X全球左翼同根生<P>
