@@ -10,3 +10,4 @@ DAX - Dear Alcohol（收尾）：帶有強烈自我反思與清醒後的沉淪�
 X中文圈的蓝V像极了美国饶舌艺人G-Eazy，包装得非常炫酷实力远远落后且不知。<p>
 https://x.com/AlexandreA23520/status/2062051437065249170?s=20   X  疯人院<P>
 https://x.com/AlexandreA23520/status/2062111533493309524?s=20 X全球左翼同根生<P>
+https://x.com/AlexandreA23520/status/2062699365240848669?s=20 都喜欢说经济经济经济，那就从经济上讲，中共还能活到现在与全球主义的利益脱不开干系。
