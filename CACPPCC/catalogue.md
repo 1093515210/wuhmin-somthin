@@ -4,6 +4,8 @@
 
 **中文翻译源自Gemini模型，请勿用于商业用途。**
 
+**Gemini isn’t human. It can make mistakes, so double-check it.**
+
 **© 2025 Hudson Institute, Inc. All rights reserved.**
 
-[英文原作请点南此处](https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf)
+[英文原作请点此处](https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf)
