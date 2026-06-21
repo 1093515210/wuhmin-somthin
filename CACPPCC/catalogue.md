@@ -2,7 +2,7 @@
 1、[OSS IN CHINA AGAIN: THE ROLE OF US SPECIAL OPERATIONS FORCES AFTER CCP COLLAPSE](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/OSS-IN-CHINA-AGAIN%3ATHE-ROLE-OF-US-SPECIAL-OPERATIONS-FORCES-AFTER-CCP-COLLAPSE.md)<P>
 
 
-**中文翻译源自Gemini模型，请勿用途商业用途。**
+**中文翻译源自Gemini模型，请勿用于商业用途。**
 
 **© 2025 Hudson Institute, Inc. All rights reserved.**
 
