@@ -4,5 +4,5 @@
 # 中文
 
 **中文翻译源自谷歌机翻，请勿用途商业用途。**
-
+**© 2025 Hudson Institute, Inc. All rights reserved.**
 原地址：[https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf](https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf)
