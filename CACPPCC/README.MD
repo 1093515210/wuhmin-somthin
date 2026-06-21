@@ -1,5 +1,5 @@
 ORIGIN FROM https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf
-<P>#共產主義後的中國：為後中共時代的中國做準備
+<P># 共產主義後的中國：為後中共時代的中國做準備
 <P>## 关于作者</P>
 <P>### 余茂春</P>
 <P>余茂春是哈德逊研究所中国中心的高级研究员兼主任。他同时也是美国海军学院（位于马里兰州安纳波利斯）东亚史和军事史/海军史教授。余博士专攻中国军事和战略文化、中美军事和外交史以及美国对华政策。
