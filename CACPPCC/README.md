@@ -1,4 +1,18 @@
-ORIGIN FROM https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf
+本作为[英文原版](https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf)通过谷歌机器翻译而成，建议结合英文原作阅读，因本翻译版本有缺失原作所有插图。<p>
+© 2025 哈德逊研究所版权所有。<p>
+关于哈德逊研究所<p>
+哈德逊研究所是一家研究机构，致力于提升美国在安全、自由和繁荣未来的领导地位。<p>
+哈德逊研究所由战略家赫尔曼•卡恩于1961年创立，挑战传统思维，并通过在国防、国际关系、经济、能源、技术、文化和法律等领域的跨学科研究，帮助管理面向未来的战略转型。<p>
+哈德逊研究所致力于通过一系列出版物、会议、政策简报和建议，为政府和企业的政策制定者和全球领导者提供指导。<p>
+访问 www.hudson.org 了解更多信息。<p>
+哈德逊研究所<p>
+宾夕法尼亚大道1201号，西北区<p>
+四楼<p>
+华盛顿特区 20004<p>
++1.202.974.2400<p>
+info@hudson.org<p>
+<p>www.hudson.org<p>
+
 # 共產主義後的中國：為後中共時代的中國做準備
 ## 关于作者
 ### 余茂春
