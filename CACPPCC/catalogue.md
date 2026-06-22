@@ -7,7 +7,7 @@
 
 4、[中共崩溃后之中华金融体系重构：资本重整、教条摒弃、私有化及权力分权](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/Restructuring-the-chinese-financial-system-after-ccp-collapse_recapitalization_repudiation_privatization_and-decentralization.md)
 
-5、[保障在美之中华资产](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/SECURING-CHINA%E2%80%99S-ASSETS-IN-AMERICA.md)
+5、[肅清與防範：在美中華資產之處置方案](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/SECURING-CHINA%E2%80%99S-ASSETS-IN-AMERICA.md)
 
 6、[戡定與重組：解放軍、武警及民兵之防務整肅](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/Seciromg-and-Restructuring-the-PLA_PAP-and-People's-Militia.md)
 
