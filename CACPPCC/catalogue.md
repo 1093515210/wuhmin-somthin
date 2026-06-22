@@ -15,9 +15,9 @@
 
 8、[中国的自治区与人权](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/China's-Autonomous-Regions-And-Human-Rights.md)
 
-9、
+9、[如何在中国启动真相与和解进程](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/How-to-initiate-a-truth-and-reconciliation-process-in-China.md)
 
-10、
+10、[制憲議會方案](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/A-Consituional-Convention-Plan.md)
 
 **中文翻译源自Gemini与GPT模型，请勿用于商业用途。**
 
