@@ -1,4 +1,6 @@
-**本章由GEMMA翻译，[英文原作请点此处](https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf)**
+SECURING AND RESTRUCTURING THE PLA, PAP, AND PEOPLE’S MILITIA
+
+**本章由GEMMA翻译，人工智慧翻译可能不准确，[英文原作请点此处](https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf)**
 # 	保障與重組解放軍、武警及民兵之研究
 <P>	里克·費舍
 <P>	本研究假定未來之危機將終結中共之獨裁統治。據此，本文旨在為各國政府提供實務建議，以協助新任中國政府生存，並於抉擇中開創穩定之新紀元。同時，本文亦簡要考量若未能說服後中共政府選擇和睦與和平，將會帶來何種負擔。
