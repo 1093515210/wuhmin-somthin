@@ -1,6 +1,6 @@
 **本章由GEMMA翻譯，見到重複段落請忽略。[英文原作请点此处](https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf)**
 
-# 三重諜戰：中央失序下中共安全與情報機構
+# 諜戰重重：中央失序下中共安全與情報機構
 <P>	匿名
 
   ## 執行摘要
