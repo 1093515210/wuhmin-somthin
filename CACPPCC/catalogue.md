@@ -13,7 +13,7 @@
 
 7、[三重諜戰：缺乏中央權威時之中共安全與情報機構](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/SPY%20VERSUS%20SPY%20VERSUS%20SPY%20THE%20CCP%E2%80%99S%20SECURITY%20AND%20ESPIONAGE%20APPARATUS%20IN%20THE%20ABSENCE%20OF%20CENTRAL%20AUTHORITY.md)8、
 
-8、
+8、[中国的自治区与人权](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/China's-Autonomous-Regions-And-Human-Rights.md)
 
 9、
 
