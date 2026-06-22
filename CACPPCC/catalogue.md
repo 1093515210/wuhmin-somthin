@@ -1,5 +1,5 @@
 # 中文版超链接意将您引导到每一章并不会引导到英文原作
-1、[关于作者&执行摘要](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/README.md）
+1、[关于作者&执行摘要](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/README.md)
 
 2、[战略情报局再临神州：论中共倾覆后美军特种部队之运筹](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/OSS-IN-CHINA-AGAIN%3ATHE-ROLE-OF-US-SPECIAL-OPERATIONS-FORCES-AFTER-CCP-COLLAPSE.md)<P>
 
