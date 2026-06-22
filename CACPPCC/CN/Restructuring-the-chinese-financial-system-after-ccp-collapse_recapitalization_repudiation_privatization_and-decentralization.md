@@ -1,4 +1,4 @@
-**本章由GEMMA翻譯**
+**本章由GEMMA翻譯,人工智慧翻译可能不准确，[英文原作请点此处](https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf)**
 # 中共崩溃后之中华金融体系重构：资本重整、教条摒弃、私有化及权力分权
 <P>	莱恩·克拉克
 <P>	绪论与战略理据
