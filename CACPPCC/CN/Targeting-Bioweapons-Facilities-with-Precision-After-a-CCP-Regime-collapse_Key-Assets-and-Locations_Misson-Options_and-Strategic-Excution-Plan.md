@@ -1,5 +1,6 @@
 TARGETING-BIOWEAPONS-FACILITIES-WITH-PRECISION-AFTER-A-CCP-REGIME- COLLAPSE:-KEY-ASSETS-AND-LOCATIONS, MISSION-OPTIONS, AND-STRATEGIC-EXECUTION-PLAN
-**本章由GPT模型翻译**
+
+**本章由GPT模型翻译，人工智慧翻译可能不准确，[英文原作请点此处](https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf)**
 
 # 论中共政权崩溃后对生物武器设施之精准打击：关键资产与地点、任务选项及战略执行计划
 
