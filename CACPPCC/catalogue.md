@@ -9,7 +9,7 @@
 
 5、[保障在美之中华资产](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/SECURING-CHINA%E2%80%99S-ASSETS-IN-AMERICA.md)
 
-6、[保障與重組解放軍、武警及民兵之研究](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/Seciromg-and-Restructuring-the-PLA_PAP-and-People's-Militia.md)
+6、[戡定與重組：解放軍、武警及民兵之防務整肅](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/Seciromg-and-Restructuring-the-PLA_PAP-and-People's-Militia.md)
 
 7、[諜戰重重：缺乏中央權威時之中共安全與情報機構](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/SPY%20VERSUS%20SPY%20VERSUS%20SPY%20THE%20CCP%E2%80%99S%20SECURITY%20AND%20ESPIONAGE%20APPARATUS%20IN%20THE%20ABSENCE%20OF%20CENTRAL%20AUTHORITY.md)8、
 
