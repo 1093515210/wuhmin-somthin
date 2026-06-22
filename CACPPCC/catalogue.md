@@ -5,7 +5,7 @@
 
 3、[论中共政权崩溃后对生物武器设施之精准打击：关键资产与地点、任务选项及战略执行计划](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/Targeting-Bioweapons-Facilities-with-Precision-After-a-CCP-Regime-collapse_Key-Assets-and-Locations_Misson-Options_and-Strategic-Excution-Plan.md)
 
-4、[中共崩溃后之中华金融体系重构：资本重整、教条摒弃、私有化及权力分权](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/RESTRUCTURING-THE-CHINESE-FINANCIAL-SYSTEM-AFTER-CCP-COLLAPSE:-RECAPITALIZATION,%20REPUDIATION,%20PRIVATIZATION,%20AND-DECENTRALIZATION.md)
+4、[中共崩溃后之中华金融体系重构：资本重整、教条摒弃、私有化及权力分权](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/Restructuring-the-chinese-financial-system-after-ccp-collapse_recapitalization_repudiation_privatization_and-decentralization.md)
 
 5、[保障在美之中华资产](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/SECURING-CHINA%E2%80%99S-ASSETS-IN-AMERICA.md)
 
