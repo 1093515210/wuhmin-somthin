@@ -125,4 +125,3 @@
 <P>	是以，未來中國民主轉型應包含對精英非法所得之清算。為達成此目的，新政府可採取「糾正錯誤但不懲處當事人」之策略：只要歸還非法所得，則無需進行個人審判或處罰；新政府得將追回之財富用於公益與慈善事業。
 <P>	Truth and reconciliation are a process, and the entire transition is a process as well. The change cannot happen all at once, so it is vital to determine priorities. In advancing the process of truth and reconciliation, the top priorities are to ensure freedom of speech, restore fundamental human rights, and release all prisoners of conscience.
 <P>	真相與和解乃一過程，整體轉型亦然。變革無法一蹴而就，故確立優先順序至關重要。於推進真相與和解程序時，首要任務應為確保言論自由、恢復基本人權，並釋放所有良心犯。
-<img width="1282" height="2222" alt="image" src="https://github.com/user-attachments/assets/59773491-1e9a-4536-8a10-b34a16788071" />
