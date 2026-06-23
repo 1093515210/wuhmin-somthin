@@ -3,17 +3,28 @@
 # OSS-IN-CHINA-AGAIN:THE-ROLE-OF-US-SPECIAL-OPERATIONS-FORCES-AFTER-CCP-COLLAPSE./战略情报局再临神州：论中共倾覆后美军特种部队之运筹
 
 佚名
+The Nobel Prize–winning Russian author Boris Pasternak wrote, “I have found and given names to all this sorcery that has been the cause of suffering, bafflement, amazement, and dispute for several decades. Everything is named in simple, transparent, and sad words.” Pasternak’s words were a love story about a doctor named Yurii and “a girl from a different world” named Lara who lived during Russia’s “chain of revolutionary decades.” Sorcery was the vast Bolshevik design to tear down the individual, remake society, and impose a world-historical ideology on private thoughts and beliefs: the “people had to be cured, by every means of terrorism, of the habit of thinking and judging for themselves, and forced to see what didn’t exist, to assert the very opposite of what their eyes told them.” To break the spell of the party-state’s elaborate shams and appropriation of the past, Pasternak offered simple, transparent, and sad words “to call each thing by its right name.”1
 
 俄国文豪、诺贝尔文学奖得主帕斯捷尔纳克曾写道：“此数十年来，种种惑众之妖术，致使生灵涂炭、迷惘、惊诧、争端不断。今吾已悉数物色并正其名。万事万物，皆归于朴素、清澈而哀伤之辞章。”此乃帕氏笔下之情史，述及尤里医生与“异界少女”拉拉，于俄国“连绵革命之秋”之遭际。所谓“妖术”，即布尔什维克之宏图：摧毁个人，重塑社会，将大同意识形态强加于私人信仰之上。“必以种种恐怖手段，医治人民独立思考与裁判之痼疾，迫其视虚为实，指鹿为马，虽亲目所见亦不可信。”为破除党国苦心经营之幻象与对历史之僭夺，帕氏乃以朴素、清澈而哀伤之辞，力求“名副其实，归于本真”。
 
+There is much to name in China’s nineteenth-century encounter with a rising, encroaching international system and the chain of revolutionary decades that followed. After communism, the Boris Pasternaks of China, whom the Chinese government has long suppressed, will need to find and give names to a tortuous modern history. At stake in their work will be nothing less than China’s cultural and intellectual inheritance, the place of the Chinese people in modernity, and the disposition of the Chinese state toward the international system.
+
 回眸中国于十九世纪惊遇勃兴、进逼之国际体系，以及随之而至之连绵革命，亟待正名者何其多也。赤祸消弭之后，久受当局箝制之中国“帕斯捷尔纳克们”，必将挺身而出，为这段崎岖之近代史重新正名。此举所关涉者，绝非仅止于中国之文化与思想遗产，更系乎吾国人民于现代性中之立足，以及国家对国际体制之抉择。
+
+Like Pasternak, they will continue the task that an earlier generation of reformers and intellectuals began, a Marxist-Leninist revolution interrupted, and a totalitarian state commandeered. They will imagine Beijing as Pasternak once contemplated Moscow: not only “as the stage of the events . . . but as the main protagonist of a long story” portending freedom.2 No government can ever prescribe the right names or correct interpretations of the past. Writers, historians, artists, former Chinese Communist Party (CCP) officials, and ordinary people will all put forward their own versions in a free, ongoing contest of ideas that spans the revolutionary decades of sorcery and recovers a collective memory.
 
 彼等将承前贤未竟之业——即为马列革命所阻断、为极权国家所劫持之自强道路。彼等眼中有如帕氏之望莫斯科：北京不独为历史风云之舞台，亦为一追求自由之长篇史诗之主角。非有司所能敕令历史之正解，作家、史家、艺人、前中共官僚及草野平民，皆将于自由思想之砥砺中，各陈其说，遍历妖术横行之革命岁月，以收复集体之记忆。
 
-## 陆与海
+## The Land and the Sea /陆与海
+
+While CCP sorcerers slept during a fleeting period of frankness in the 1980s, one interpretation that made it past state censors to be broadcast on China Central Television was called River Elegy. The documentary depicted a land of yellow loess sediment in the interior of a broad continent. A river ran through it and carried the world’s heaviest silt load. In cycles, this river nurtured and devastated the civilization born on its flood-prone banks. Its people came to view the world in cycles: of flood, of life and death, of rise and fall, of sowing and reaping, of the seasons. They worshiped the dragon, an amalgam of symbols representing life, death, and rebirth. They formed a cultural and psychological bond with the land. They built a Great Wall to defend the frontiers of the land and of agriculture. They sustained a self-sufficient order and a tradition of hierarchical governance bound to the land. “The land was the root of survival, a generational inheritance, the whole purpose of human life. Thousands of years of culture all accumulated in this yellow soil. Thus, it seems very mystical, as if it held the soul of the Chinese people.”
+
 当中共之“巫师”于八十年代那段短暂、坦率之岁月沉睡之际，一部名为《河殇》之政论片，竟避过书检，于中央电视台开播。该片描绘了一片处于广袤大陆腹地之黄土高原。大河奔流其间，挟带举世最甚之泥沙。此河寒暑更替，既孕育亦摧折了诞生于泛滥两岸之文明。其民遂以循环之目视世界：洪涝、生死、兴衰、播获、四时。彼等崇拜青龙——集生命、死亡与重生之象。彼等与土地结下文化与心理之契盟，筑万里长城以御边陲与农桑，维系着依赖土地之自给秩序与尊卑纲常。“土地乃生存之本，世代之荫，人生之标的。数千年之文化，皆积淀于此黄土之中。是以玄妙若此，俨然承载了中华民族之魂魄。”
 
+As the events depicted in the documentary occurred, in another corner of the world the people of an island nation turned their gaze to the sea. They took to their ships and believed they were answering a calling: “Let us in God’s name leave off our attempts against the terra firma. . . . When we would enlarge ourselves, let it be that way we can, and to which it seems the eternal Providence hath destined us, which is by the sea.”4 They followed a linear rather than cyclical concept of fate. On the sea, they acquired a new character and a new mode of empire that conferred unprecedented economic and military power. They rose to the top of a maritime system of security and commerce that engulfed the world. “
+
 正值此景，世界另一隅之岛国，其民正极目沧海。彼等扬帆出海，深信此乃天命所归：“假上帝之名，且由吾人舍弃对大陆之觊觎……若欲扩张，当由沧海，此乃永恒神意之所归。”彼等所循者，乃线性而非循环之宿命。于惊涛骇浪间，彼等砥砺出新之国民性与帝国之体制，握空前之经济与兵戎之盛。彼等跃居环球海事与通商体系之巅，包举宇内。“悠悠岁月，英吉利人渐悟：沧海护卫其国，而卫海之责亦在其肩。”此乃千年未有之大变局之始，端赖地理、技术、商贾之利、宗教信仰、政治传统、国民性格与时机之奇妙际会。“英吉利之运数，使其于紧要关头一跃成为弄潮儿。丰亨之资本主义方降临人世，操纵此新体制之国，其获利将远超往昔任何帝国之宝藏。”对于大河沃野与大陆心脏之继承者而言，此乃一酷烈之挑战。
+
 
 清道光十八年（1838年），筑城御虏达两千年之大陆帝国，遣一钦差大臣至东南海疆，以图别开生面。林文忠公（则徐）收缴外洋商船鸦片近三百万磅，倾之于海。彼曾祭告海神，然沧海带来的却是兵燹与奇耻。道光二十年（1840年），英吉利皇家海军猝至，陷上海、镇江，溯长江而上。道光二十二年（1842年），清廷代表于停泊在南京江面之“皋华丽号”军舰上屈辱求和。此乃黄土泛滥平原之民，与扩张之海洋体制所立之首个“不平等条约”。
 
