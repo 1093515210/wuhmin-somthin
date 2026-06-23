@@ -1,4 +1,4 @@
-**本章由GEMMA翻譯,人工智慧翻译可能不准确，[英文原作请点此处](https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf)**
+**本章由GEMMA与GPT大語言模型輔助翻譯，英漢雙語對照僅供個人學習、學術探討及地緣政治沙盤推演研究之用，不投入任何商業或營利性用途。英文原作版權完全歸原作者及原出版/智庫機構所有，[英文原作请点此处](https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf)访問。譯文中譯名與歷史術語已由人工進行考證校正，以還原歷史與地理學之學術嚴謹性。本人完全尊重原作者的知識產權，若版權方認為本項目的非營利性對照展示有所不妥，請隨時通過 Issue 聯繫本人，本人將在第一時間配合刪除相關內容。**
 # 肅清與防範：在美中華資產之處置方案
 <P>	章家敦
   
