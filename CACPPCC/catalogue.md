@@ -19,11 +19,10 @@
 
 10、[制憲議會方案](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/A-Consituional-Convention-Plan.md)
 
-**中文翻译源自Gemini与GPT模型，请勿用于商业用途。**
+11、[缩写词与批注](https://github.com/1093515210/wuhmin-somthin/blob/main/CACPPCC/CN/Abbreviations-Endnotes.md)
 
+**中文翻译源自Gemini与GPT模型，请勿用于商业用途。** <P>
 **Gemini isn’t human. It can make mistakes, so double-check it.** <P>
-**ChatGPT can make mistakes. Check important info.**
-
-**© 2025 Hudson Institute, Inc. All rights reserved.**
-
+**ChatGPT can make mistakes. Check important info.** <P>
+**© 2025 Hudson Institute, Inc. All rights reserved.** <P>
 [英文原作请点此处](https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf)
