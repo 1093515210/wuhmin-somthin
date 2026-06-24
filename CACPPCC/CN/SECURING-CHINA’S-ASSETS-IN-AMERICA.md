@@ -2,8 +2,10 @@
 # 肅清與防範：在美中華資產之處置方案
 <P>	章家敦
   
-## 	执行摘要
+## 	Executive Summary/执行摘要
+China’s Communist Party is facing unprecedented challenges and could fail. Xi Jinping’s ideological rule is disastrous for his regime. To prepare for a collapse, the Trump administration should use its emergency powers to get American businesses and citizens out of China. The less exposure America has in that country, the less leverage old or new ruling groups there will have to use against the United States.
 <P>中共正遭遇前所未有之挑戰，且有覆亡之虞。習氏之意識形態統治，對其政權而言不啻為滅頂之災。為應對其崩潰變局，特朗普政府應動用緊急權力，撤離在華之美企與美籍公民。美國於彼方之風險敞口愈低，則無論新舊當權派，皆愈無籌碼以挾制美國。
+  Correspondingly, the United States should lessen its vulnerability to regime failure by removing Chinese parties from various economic sectors in America, such as food processing. Washington should also prohibit Chinese citizens and entities from owning farm or ranch land for national security and other reasons. In general, American policymakers should end their “engagement” policies and begin putting American interests before those of China. This paper addresses this issue and asks a related question: What should Washington do with Chinese assets in America when the CCP regime fails？
 <P>	相應地，美國應將中方勢力逐出美國食品加工等關鍵經濟領域，以降低政權崩解對美之衝擊。基於國家安全諸因，華府亦應嚴禁中國公民與實體購置農牧土地。總體而言，美國決策者當終止「接觸」政策，轉以美國利益為首要考量。本報告即探討此核心議題，並提出關鍵叩問：當中共政權崩潰之際，華府當如何處置在美之中華資產？
   
 ## 	一颗定时炸弹
