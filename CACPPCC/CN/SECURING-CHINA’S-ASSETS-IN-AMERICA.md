@@ -4,77 +4,98 @@
   
 ## 	Executive Summary/执行摘要
 China’s Communist Party is facing unprecedented challenges and could fail. Xi Jinping’s ideological rule is disastrous for his regime. To prepare for a collapse, the Trump administration should use its emergency powers to get American businesses and citizens out of China. The less exposure America has in that country, the less leverage old or new ruling groups there will have to use against the United States.
-<P>中共正遭遇前所未有之挑戰，且有覆亡之虞。習氏之意識形態統治，對其政權而言不啻為滅頂之災。為應對其崩潰變局，特朗普政府應動用緊急權力，撤離在華之美企與美籍公民。美國於彼方之風險敞口愈低，則無論新舊當權派，皆愈無籌碼以挾制美國。
+<P>中共正遭遇前所未有之挑戰，且有覆亡之虞。習氏之意識形態統治，對其政權而言不啻為滅頂之災。為應對其崩潰變局，特朗普政府應動用緊急權力，撤離在華之美企與美籍公民。美國於彼方之風險敞口愈低，則無論新舊當權派，皆愈無籌碼以挾制美國。<P>
   Correspondingly, the United States should lessen its vulnerability to regime failure by removing Chinese parties from various economic sectors in America, such as food processing. Washington should also prohibit Chinese citizens and entities from owning farm or ranch land for national security and other reasons. In general, American policymakers should end their “engagement” policies and begin putting American interests before those of China. This paper addresses this issue and asks a related question: What should Washington do with Chinese assets in America when the CCP regime fails？
 <P>	相應地，美國應將中方勢力逐出美國食品加工等關鍵經濟領域，以降低政權崩解對美之衝擊。基於國家安全諸因，華府亦應嚴禁中國公民與實體購置農牧土地。總體而言，美國決策者當終止「接觸」政策，轉以美國利益為首要考量。本報告即探討此核心議題，並提出關鍵叩問：當中共政權崩潰之際，華府當如何處置在美之中華資產？
   
-## 	一颗定时炸弹
-<P>	不久前，几乎人人皆谓中华人民共和国正崛起；然时移世易，论调已然翻转。显而易见，棘手之难题正困扰该国：大企业债务违约频仍、房价暴跌、经济颓丧、粮食短缺加剧、环境恶化，且地方政府财政几近枯竭。货币持续走弱，企业纷纷撤离，资本正大量外逃。
-<P>	与此同时，中国民众愤懑不平。自二〇二二年底至二〇二三年，民众走上街头，爆发一系列非比寻常之抗议，部分激进者竟公开要求终结中共统治。另有民众则已心灰意冷，选择永久离境。此期间，涌入美国之中国移民呈史无前例之激增，主要经由南部边境入境。一于二〇二三年二月经德州布朗斯维尔入境之中国移民“萨姆”向《Axios》媒体表示，此种移民潮犹如“地震前之兽群奔逃”。美国总统乔·拜登于二〇二三年八月宣称：“中国正陷入困境”，甚至称该国为“一颗定时炸弹”。即便至近期，唐纳德·特朗普总统于二〇二五年五月亦表示：“（中国）正遭受重创。因其不与美国进行贸易，其经济正遭受重创。”简言之，中共政权或正进入其末期阶段。
-<P>	中国政权之最后一次覆灭，发生于一九四九载，时值毛泽东领导之解放军势如破竹，迫使蒋介石领导国民政府迁往台湾。遂国民政府崩溃与中华人民共和国宣告成立，并未导致中国海外资产之即时没收。直至一九五〇年中国突入朝鲜战争，杜鲁门政府方于十五个月后宣布国家进入紧急状态并冻结该等资产。一九五〇年十二月十七日，美国财政部依据一九一七年《贸易与敌方法》，冻结了价值八千零五十万美元之中国资产。十一日后，北京方面亦实施报复，没收了在华之美国资产一亿九千七百万美元。
-<P>	虽中国共产革命未曾直接引发资产没收，然彼时实为战时。今日，多有观点认为东亚战争迫在眉睫，且极可能涉及美国。亨利·基辛格于二〇二三年六月曾言，此类冲突“极具可能性”。诚然，战争不等同于本文所议之中共崩溃；然一九四〇年代之中国战争导致了政权崩溃，而崩溃又诱发更多战争。是以，彼时之教训，极可能适用于今日。
-<P>	中国为何欲向美国开战？其根本原因在于，美国阻碍了习近平实现其全球统治之梦。彼及其官僚体系不仅宣扬中国帝制时代之“天命”观——即统治者受命于天以统御“天下”———更宣称上天实则强令其如此。此举自然意味着，习近平认为美国理应向其效忠。
-<P>	此外，极度不安中国政权，亦忧虑美国之价值观与治理模式会激起中国民众之不满。北京遂深感，除非摧毁美国，否则其安全永无保障。此乃中共“喉舌”——亦即中国最具权威之刊物《人民日报》——于二〇一九年五月刊登一篇宣称对美发动“人民战争”之里程碑式文章之主因。此词含义深远。《解放军报》于二〇二三年四月之专栏指出：“人民战争乃全面战争，其战略与战术须动员政治、经济、文化、外交、军事及其他一切力量资源，并整合多种斗争与作战手段。”
-<P>	更为直接之诱因，乃中国欲兼并台湾及与华盛顿签有共同防御条约之国家部分领土，而美国在军事及其他层面构成了其障碍。例如，美国负有捍卫日本及菲律宾免受北京领土野心侵扰之义务。
-<P>	于此危急时刻，华盛顿最优策，欲将美资撤出中国。在华资产越少，美国损失越小，华盛顿在处理在美中国资产时，亦将拥有更广之行动自由。
-<P>	习近平正不遗余力地迫使美方企业撤离中国。尤为显著者，乃其于二〇二三年七月一日生效之《反间谍法》修正案，将正常的商业信息搜集行为定为犯罪。此项修正案实为将既有现状法律化。修正前，法律仅保护“国家秘密”；修正后，则将一切涉及“国家安全与利益之文件、数据、资料或物品”之搜集行为皆列为犯罪。于实务层面，这意味着一切与商业活动相关之行为皆在禁锢之列。
-<P>	中共政权已认定，对商业至关重要之经济研究，亦属国家安全或利益范畴。二〇二三年三月，北京突袭并关闭了美国企业尽职调查公司敏哲集团（Mintz Group）北京办事处，以此昭示其立场。北京亦扣押了五名当地员工，并对该公司处以一百五十万美元之罚款，理由系其从事“未经批准”之调查工作。随后于二〇二三年四月，警方亦搜查了国际咨询公司贝恩公司（Bain & Co.）之上海办事处及专家网络卡普逊（Capvision）办公室；此等行动证实了外界对北京打压行径之忧虑。正如雷蒙多部长于二〇二三年访华时所言，此类严厉手段“正令美国界感到震动”。她表示：“我愈发听到美国商界传言，由于风险过高，中国已变得‘不具投资价值’。”
+## 	A Ticking Time Bomb/一颗定时炸弹
+Not long ago, virtually everybody thought the People’s Republic of China was rising. Now, however, the narrative has flipped. It is evident that intractable problems plague the country. There are at this moment continuing debt defaults of major companies, falling property prices, a tumbling economy, worsening food shortages, a deteriorating environment, and failing local governments. The currency is weakening, businesses are leaving China, and money is gushing out of the country.
+<P>	不久前，几乎人人皆谓中华人民共和国正崛起；然时移世易，论调已然翻转。显而易见，棘手之难题正困扰该国：大企业债务违约频仍、房价暴跌、经济颓丧、粮食短缺加剧、环境恶化，且地方政府财政几近枯竭。货币持续走弱，企业纷纷撤离，资本正大量外逃。<P>
+  Meanwhile, the Chinese people are angry. They took to the streets in a series of extraordinary protests beginning in late 2022 and continuing into 2023, with some boldly calling for the end of CCP rule. Other Chinese people have given up, opting to leave the country for good. During this period, there has been an unprecedented surge of Chinese migrants to America, primarily through the southern border. Speaking to Axios, “Sam,” a Chinese migrant who entered America in February 2023 at Brownsville, Texas, compared the migration to “an animal stampede before an earthquake.”【102】 “China is in trouble,”President Joe Biden declared in August 2023. He even called the country “a ticking time bomb.”【103】 Even recently, President Donald Trump stated in May 2025, “[China is] suffering greatly. Their economy is suffering greatly because they’re not doing trade with the US.”【104】 In short, the CCP regime might be entering its terminal phase.
+<P>	与此同时，中国民众愤懑不平。自二〇二二年底至二〇二三年，民众走上街头，爆发一系列非比寻常之抗议，部分激进者竟公开要求终结中共统治。另有民众则已心灰意冷，选择永久离境。此期间，涌入美国之中国移民呈史无前例之激增，主要经由南部边境入境。一于二〇二三年二月经德州布朗斯维尔入境之中国移民“萨姆”向《Axios》媒体表示，此种移民潮犹如“地震前之兽群奔逃”。美国总统乔·拜登于二〇二三年八月宣称：“中国正陷入困境”，甚至称该国为“一颗定时炸弹”。即便至近期，唐纳德·特朗普总统于二〇二五年五月亦表示：“（中国）正遭受重创。因其不与美国进行贸易，其经济正遭受重创。”简言之，中共政权或正进入其末期阶段。<P>
+  The last failure of a Chinese regime occurred in 1949 when the swift advances of Mao Zedong’s PLA forced Chiang Kai-shek’s Nationalist government to flee to Taiwan. The Nationalists’ collapse and the proclamation of the PRC’s founding did not lead to immediate expropriations of China’s assets abroad. The Truman administration declared a national emergency and froze these assets 15 months later in response to China’s surprise entry into the Korean War. On December 17, 1950, the US Treasury Department, under the Trading with the Enemy Act of 1917, froze $80.5 million of Chinese assets in the United States.【105】Eleven days later, Peking retaliated, seizing $197 million of US assets in China.
+<P>	中国政权之最后一次覆灭，发生于一九四九载，时值毛泽东领导之解放军势如破竹，迫使蒋介石领导国民政府迁往台湾。遂国民政府崩溃与中华人民共和国宣告成立，并未导致中国海外资产之即时没收。直至一九五〇年中国突入朝鲜战争，杜鲁门政府方于十五个月后宣布国家进入紧急状态并冻结该等资产。一九五〇年十二月十七日，美国财政部依据一九一七年《贸易与敌方法》，冻结了价值八千零五十万美元之中国资产。十一日后，北京方面亦实施报复，没收了在华之美国资产一亿九千七百万美元。<P>
+  While the Communist Revolution in China did not trigger expropriations, it was a war. Today many believe another war is now coming in East Asia, which will almost certainly involve the US. In June 2023 Henry Kissinger said such a conflict was “probable.”【106】 Of course, war is not the same as a collapse of the CCP, the focus of this paper; but war in 1940s China led to collapse, and collapse led to more war. So the lessons of that era may very well apply now.
+<P>	虽中国共产革命未曾直接引发资产没收，然彼时实为战时。今日，多有观点认为东亚战争迫在眉睫，且极可能涉及美国。亨利·基辛格于二〇二三年六月曾言，此类冲突“极具可能性”。诚然，战争不等同于本文所议之中共崩溃；然一九四〇年代之中国战争导致了政权崩溃，而崩溃又诱发更多战争。是以，彼时之教训，极可能适用于今日。<P>
+  Why would China go to war against the United States? Most fundamentally, the United States stands in the way of Xi Jinping’s dreams of worldwide rule. He and his officials have been propagating not only the Chinese imperial-era notion that China’s rulers had the Mandate of Heaven to rule tianxia, or “all under Heaven,” but also that Heaven actually compelled them to do so. This, of course, means Xi believes the United States owes allegiance to him.
+<P>	中国为何欲向美国开战？其根本原因在于，美国阻碍了习近平实现其全球统治之梦。彼及其官僚体系不仅宣扬中国帝制时代之“天命”观——即统治者受命于天以统御“天下”———更宣称上天实则强令其如此。此举自然意味着，习近平认为美国理应向其效忠。<P>
+  Moreover, an insecure Chinese regime worries about how America’s values and form of governance will inspire an unhappy Chinese people. Beijing consequently feels it will never be safe until it destroys America. That is one of the reasons People’s Daily—the CCP’s self-described “mouthpiece” and therefore the most authoritative publication in China—carried a landmark piece declaring a “people’s war” on America in May 2019.【107】 This phrase has special meaning. “A people’s war is a total war, and its strategy and tactics require the overall mobilization of political, economic, cultural, diplomatic, military, and other power resources, the integrated use of multiple forms of struggle and combat methods,” declared an April 2023 column in PLA Daily, an official news website of the PLA.【108】 
+<P>	此外，极度不安中国政权，亦忧虑美国之价值观与治理模式会激起中国民众之不满。北京遂深感，除非摧毁美国，否则其安全永无保障。此乃中共“喉舌”——亦即中国最具权威之刊物《人民日报》——于二〇一九年五月刊登一篇宣称对美发动“人民战争”之里程碑式文章之主因。此词含义深远。《解放军报》于二〇二三年四月之专栏指出：“人民战争乃全面战争，其战略与战术须动员政治、经济、文化、外交、军事及其他一切力量资源，并整合多种斗争与作战手段。”<P>
+  More immediately, China may attack America because the democratic country stands in the way, militarily and otherwise, of its aim to annex Taiwan and portions of countries that have mutual defense treaties with Washington. The United States has obligations to defend, for instance, Japan and the Philippines against Beijing’s territorial ambitions.
+<P>	更为直接之诱因，乃中国欲兼并台湾及与华盛顿签有共同防御条约之国家部分领土，而美国在军事及其他层面构成了其障碍。例如，美国负有捍卫日本及菲律宾免受北京领土野心侵扰之义务。<P>
+  The best thing Washington can do at this perilous time is get American assets out of China. The fewer US assets in China, the less America has to lose, which would give Washington more freedom of action in dealing with Chinese assets in the US.
+<P>	于此危急时刻，华盛顿最优策，欲将美资撤出中国。在华资产越少，美国损失越小，华盛顿在处理在美中国资产时，亦将拥有更广之行动自由。<P>
+  Xi Jinping is relentlessly forcing American businesses to exit his country. Most notably, his regime criminalized the normal gathering of commercial information by amending its Counter-Espionage Law effective July 1, 2023. The amendments codified what had already been happening. Before the amendment, the law protected “state secrets,” but the amended law criminalizes the gathering of all “documents, data, materials, or articles related to national security and interests.” This, as a practical matter, means anything and everything related to business activities.
+<P>	习近平正不遗余力地迫使美方企业撤离中国。尤为显著者，乃其于二〇二三年七月一日生效之《反间谍法》修正案，将正常的商业信息搜集行为定为犯罪。此项修正案实为将既有现状法律化。修正前，法律仅保护“国家秘密”；修正后，则将一切涉及“国家安全与利益之文件、数据、资料或物品”之搜集行为皆列为犯罪。于实务层面，这意味着一切与商业活动相关之行为皆在禁锢之列。<P>
+  China’s regime has decided that economic research essential to business is related to national security or interests. It made this clear in March 2023 with the raid and closure of the Beijing office of the Mintz Group, an American corporate due diligence firm. Beijing also detained five local Mintz employees and fined the firm $1.5 million for “unapproved” investigative work. Soon thereafter in April 2023, police visited the Shanghai offices of Bain & Co., an international consulting firm, and raided the office of Capvision, a network of experts;109 these actions confirmed worries about Beijing’s crackdown. As Secretary Raimondo pointed out during her 2023 trip to China, these harsh tactics were “sending shockwaves through the US community” in that country. “Increasingly I hear from American business that China is uninvestible because it’s become too risky,” she said.[110]
+<P>	中共政权已认定，对商业至关重要之经济研究，亦属国家安全或利益范畴。二〇二三年三月，北京突袭并关闭了美国企业尽职调查公司敏哲集团（Mintz Group）北京办事处，以此昭示其立场。北京亦扣押了五名当地员工，并对该公司处以一百五十万美元之罚款，理由系其从事“未经批准”之调查工作。随后于二〇二三年四月，警方亦搜查了国际咨询公司贝恩公司（Bain & Co.）之上海办事处及专家网络卡普逊（Capvision）办公室；此等行动证实了外界对北京打压行径之忧虑。正如雷蒙多部长于二〇二三年访华时所言，此类严厉手段“正令美国界感到震动”。她表示：“我愈发听到美国商界传言，由于风险过高，中国已变得‘不具投资价值’。”<P>
   
-## 	危机前夕之风险规避
-<P>	习近平政权种种行径，已促使美方企業紛紛減輕對華風險敞口。然特朗普若欲進一步加速“脫鉤”之進程，可依據一九七七年《國際緊急經濟權力法》行使職權。更佳之策，乃是美方應如中國視美國一般，將中國視為敵手。特朗普亦可考慮援引一九一七年《與敵貿易法》以行事。
-<P>	於此關鍵時刻，美利堅亟需採取果斷行動。顯而易見，习近平絕無改弦更張之意，蓋因其視國家安全之觀感重於經濟繁榮。是以，警訊已極其明確，美方須預判中國若攻台或政權崩潰時之應對方案，蓋兩者皆可能於近期發生。時不我待。中國民眾目前正於經濟惡化之際歸咎於习近平，且因其集權至極，已無人可供問責。此外，於其統治期間，政治鬥爭之代價已大幅提升，故其對風險之容忍度必極低。簡言之，习近平現下具備行事魯莽之動機。
-<P>	习近平不久後必將面臨抉擇：或任由內部動盪導致其垮台，終結中共統治；或藉動員民眾對抗外人以凝聚人心。觀乎歷史，中國統治者常週期性煽動民意以保全自身。譬如，清廷末年之統治集團亦曾煽動排外之義和團運動。习近平亦可能採取此類激進手段，蓋其已透過打壓外來文化及禁止相關描繪，展現出排外傾向。
-<P>	於危機爆發前之當下，特朗普應儘速促使美方企業撤離中國。美方何須坐視災難降臨？
-<P>	政權崩潰之情景分析
-<P>	基於上述背景，讀者應思考目前之核心問題：倘若——或當——中國共產黨政權覆滅時，美利堅應當如何應對？此處有三種情景供考量：
-<P>	一、 中共覆滅，隨後平穩過渡至親美之中國政權。二、 中共覆滅，隨後平穩過渡至敵美之中國政權。三、 局勢陷入混亂，外人莫辨誰主沉浮，或陷入長期之無政府狀態。
+## 	Reducing Exposure to China before a Crisis/危机前夕之风险规避
+These actions and others by Xi’s regime have persuaded American companies to lessen exposure to China. Yet Trump could further accelerate the process of decoupling through his exercised authority under the International Emergency Economic Powers Act of 1977.111 Better yet, he could view China the same way China views America: as an enemy. Trump could also consider the Trading with the Enemy Act, the legislation Truman invoked in 1950.
+<P>	习近平政权种种行径，已促使美方企業紛紛減輕對華風險敞口。然特朗普若欲進一步加速“脫鉤”之進程，可依據一九七七年《國際緊急經濟權力法》行使職權。更佳之策，乃是美方應如中國視美國一般，將中國視為敵手。特朗普亦可考慮援引一九一七年《與敵貿易法》以行事。<P>
+  At this moment, the United States needs to take drastic action. It is apparent that Xi is not going to change course because he is prioritizing his perception of national security over economic prosperity. So the warning signs are clear, and America needs to think about what it will do if China attacks Taiwan or the regime fails, each of which could occur soon. Time is of the essence. The Chinese people are currently blaming Xi for the country’s deteriorating economic situation, and because he has amassed almost unprecedented power, he has no one else to hold accountable. Moreover, during his rule, he has substantially increased the cost of losing political struggles. China’s ruler therefore must have a low threshold of risk. In short, Xi now has incentives to act recklessly.
+<P>	於此關鍵時刻，美利堅亟需採取果斷行動。顯而易見，习近平絕無改弦更張之意，蓋因其視國家安全之觀感重於經濟繁榮。是以，警訊已極其明確，美方須預判中國若攻台或政權崩潰時之應對方案，蓋兩者皆可能於近期發生。時不我待。中國民眾目前正於經濟惡化之際歸咎於习近平，且因其集權至極，已無人可供問責。此外，於其統治期間，政治鬥爭之代價已大幅提升，故其對風險之容忍度必極低。簡言之，习近平現下具備行事魯莽之動機。<P>
+  Xi Jinping will soon have to make a choice. He can either let alarming internal developments take him down and end the rule of the CCP, or he can rally the Chinese people by mobilizing them against foreigners. Historically, China’s rulers have periodically inflamed the Chinese people to save themselves. For instance, another precarious-looking ruling group—the Qing rulers—fueled the anti-foreigner Boxer Rebellion. Xi might do something similarly radical since he has already exhibited anti-foreign sentiment with his campaigns to denigrate foreign culture and prohibit depictions of it.【112】
+<P>	习近平不久後必將面臨抉擇：或任由內部動盪導致其垮台，終結中共統治；或藉動員民眾對抗外人以凝聚人心。觀乎歷史，中國統治者常週期性煽動民意以保全自身。譬如，清廷末年之統治集團亦曾煽動排外之義和團運動。习近平亦可能採取此類激進手段，蓋其已透過打壓外來文化及禁止相關描繪，展現出排外傾向。<P>
+  In this moment before a crisis, Trump should be getting American businesses out of China as fast as he can. Why should America wait for the disaster to occur?
+<P>	於危機爆發前之當下，特朗普應儘速促使美方企業撤離中國。美方何須坐視災難降臨？<P>
+
+  ##  Collapse Scenarios/崩潰情景
+  With that background in mind, readers should consider the matter at hand: What should America do if—or when—China’s communist regime fails? There are three scenarios to consider:
+  <P>	基於上述背景，讀者應思考目前之核心問題：倘若——或當——中國共產黨政權覆滅時，美利堅應當如何應對？此處有三種情景供考量：<P>
+    1. Failure of the CCP followed by a smooth transition to a US-friendly Chinese group.
+<P>	一、 中共覆滅，隨後平穩過渡至親美之中國政權。<P>
+  2. Failure of the CCP followed by a smooth transition to a group unfriendly to the United States.
+<P>二、 中共覆滅，隨後平穩過渡至敵美之中國政權。<P>
+  3. A chaotic situation in which outsiders do not know who is in charge, or a long period in which no one is in charge.
+  <P>三、 局勢陷入混亂，外人莫辨誰主沉浮，或陷入長期之無政府狀態。<P>
   
 ### 	情景一：平穩過渡至親美之中國政府
-<P>	於第一種情景——即平穩過渡至美方所青睞之統治集團——美方除非接獲新任中國領導人要求，否則毋須採取行動，除非該等要求乃涉及查緝中國政敵之資產。該等政敵中，或有美籍綠卡持有人，甚或有美籍公民。此外，新政權之政敵亦可能尋求於美國庇護。是以，美國境內或將爆發法律訴訟。
-<P>	此類法律訴訟或演變為史詩級之爭端，譬如一九八六載，斐迪南·馬科斯及其家族搭乘空軍C-130飛機由菲律賓逃亡夏威夷後所引發之爭議。該前強人雖攜帶一千五百萬美元現金與資產，然據估計，其在全球掌控之財富高達百億美元。
-<P>	隨後，親美之科拉松·阿基諾政府成立了“政府廉政委員會”，旨在追索“一切非法所得財產……無論位於菲律賓或海外”。此類訴訟於美國及他國均有發生，且部分案件歷時數十年。其中最引人注目者，或為在夏威夷聯邦地方法院針對已故獨裁者馬科斯所提之人權集體訴訟，該案係依據一七八九年《外國侵權行為索賠法》提起。該法准許遭受外國酷刑之受害者及其家屬，於美國法院具管轄權之情況下，於美提起訴訟。律師代表一萬名聲稱遭馬科斯政權酷刑之受害者提起集體訴訟，夏威夷聯邦法院於一九九五年判處近二十億美元之損害賠償。雖菲律賓上訴法院於二〇一七年因管轄權問題駁回執行請求，但原告仍於美國繼續訴訟。
-<P>	美國法院曾就此案發布禁令。一九九一年十一月，加州聯邦地方法院法官在酷刑訴訟結案前，凍結了馬科斯之遺產，含香港及瑞士銀行賬戶內之三億二千萬美元。此凍結令發布於馬科斯遺產處理洛杉磯民事詐欺案僅十一日內，該案係菲律賓政府追索其遭掠奪之財產。洛杉磯案導致另一名聯邦法官於一九八六年實施之全球資產凍結令失效，為保護權益，酷刑案之原告遂取得新之禁令。
+<P>	於第一種情景——即平穩過渡至美方所青睞之統治集團——美方除非接獲新任中國領導人要求，否則毋須採取行動，除非該等要求乃涉及查緝中國政敵之資產。該等政敵中，或有美籍綠卡持有人，甚或有美籍公民。此外，新政權之政敵亦可能尋求於美國庇護。是以，美國境內或將爆發法律訴訟。<P>
+<P>	此類法律訴訟或演變為史詩級之爭端，譬如一九八六載，斐迪南·馬科斯及其家族搭乘空軍C-130飛機由菲律賓逃亡夏威夷後所引發之爭議。該前強人雖攜帶一千五百萬美元現金與資產，然據估計，其在全球掌控之財富高達百億美元。<P>
+<P>	隨後，親美之科拉松·阿基諾政府成立了“政府廉政委員會”，旨在追索“一切非法所得財產……無論位於菲律賓或海外”。此類訴訟於美國及他國均有發生，且部分案件歷時數十年。其中最引人注目者，或為在夏威夷聯邦地方法院針對已故獨裁者馬科斯所提之人權集體訴訟，該案係依據一七八九年《外國侵權行為索賠法》提起。該法准許遭受外國酷刑之受害者及其家屬，於美國法院具管轄權之情況下，於美提起訴訟。律師代表一萬名聲稱遭馬科斯政權酷刑之受害者提起集體訴訟，夏威夷聯邦法院於一九九五年判處近二十億美元之損害賠償。雖菲律賓上訴法院於二〇一七年因管轄權問題駁回執行請求，但原告仍於美國繼續訴訟。<P>
+<P>	美國法院曾就此案發布禁令。一九九一年十一月，加州聯邦地方法院法官在酷刑訴訟結案前，凍結了馬科斯之遺產，含香港及瑞士銀行賬戶內之三億二千萬美元。此凍結令發布於馬科斯遺產處理洛杉磯民事詐欺案僅十一日內，該案係菲律賓政府追索其遭掠奪之財產。洛杉磯案導致另一名聯邦法官於一九八六年實施之全球資產凍結令失效，為保護權益，酷刑案之原告遂取得新之禁令。<P>
 <P>	此案何以具參考價值？蓋其使美國外交陷入複雜境地。二〇一一年，夏威夷聯邦法院因馬科斯之妻伊梅爾達及子小馬科斯違反聯邦禁令於美國出售資產，以遺產執行人身份被判藐視法庭。此項藐視罪之指控，乃依據與菲律賓政府之協議而提出。
-<P>	菲律賓於二〇二二年選出小馬科斯為總統。正如原告律師所言，若其於美國境內無視傳喚，法院能否以刑事藐視罪將其拘捕？畢竟，聯邦法官已於二〇一九年將禁令延長至二〇三一年。
-<P>	小馬科斯繼其反美前任杜特蒂之後，已將國家政策與華盛頓緊密掛鉤，然其實際上已規避了禁令所致之法律後果。其以官方身份多次訪美，包含二〇二二年九月赴紐約出席聯合國大會，及二〇二三年四、五月赴華盛頓會晤拜登總統；亦於二〇二三年十一月訪舊金山出席亞太經合會。
-<P>	關於國家元首免於民事訴訟之豁免權，國際法院與英國上議院之判決尚存分歧；且無論如何，豁免權於卸任後即告終止。此酷刑案凸顯了即便在最易解決之情景下，仍將面臨棘手問題。
-<P>	雖馬科斯案與中國繼承政府之民事案件解決有關聯，然其間存有關鍵差異：現任馬科斯總統並未參與該案所述之酷刑；其未犯下種族滅絕或其他暴行，亦未利用非法芬太尼殺害美國人。因此，涉及中國之案件必將更具爆炸性，蓋中國官員已對維吾爾及其他突厥語系民族犯下種族滅絕及其他反人類罪行。鑑於中共政權之殘暴，原告極可能依據《外國侵權行為索賠法》，就此類駭人聽聞之官方行為提起訴訟。
-<P>	無論是特朗普或拜登政府，均已正式認定中國犯有且持續犯有種族滅絕罪。依據《防止及懲治種族滅絕罪公約》第一條，美國負有“預防及懲治”此類行為之義務。
-<P>	此外，新任中國政府極可能要求美國移交已流亡美國之前中國官員。由於中美間並無引渡條約，法律爭端必將進入未知領域。美國或可驅逐逃亡之中國官員，然恐缺乏直接將其移交予中國繼承政府之機制。
-<P>	美國政府應嘗試透過“法庭之友”簡報等手段，引導法院判決向維護美國及他人正義之方向傾斜，此等他人，或為繼承之中國政府，或非也。
-<P>	由於爭議由法官而非美國官員裁決，案件將取決於法律之技術問題，而非必然考慮國家利益。是以，無論新中國政府與華盛頓關係如何友好，法律爭端之複雜性實屬難免。
+<P>	菲律賓於二〇二二年選出小馬科斯為總統。正如原告律師所言，若其於美國境內無視傳喚，法院能否以刑事藐視罪將其拘捕？畢竟，聯邦法官已於二〇一九年將禁令延長至二〇三一年。<P>
+<P>	小馬科斯繼其反美前任杜特蒂之後，已將國家政策與華盛頓緊密掛鉤，然其實際上已規避了禁令所致之法律後果。其以官方身份多次訪美，包含二〇二二年九月赴紐約出席聯合國大會，及二〇二三年四、五月赴華盛頓會晤拜登總統；亦於二〇二三年十一月訪舊金山出席亞太經合會。<P>
+<P>	關於國家元首免於民事訴訟之豁免權，國際法院與英國上議院之判決尚存分歧；且無論如何，豁免權於卸任後即告終止。此酷刑案凸顯了即便在最易解決之情景下，仍將面臨棘手問題。<P>
+<P>	雖馬科斯案與中國繼承政府之民事案件解決有關聯，然其間存有關鍵差異：現任馬科斯總統並未參與該案所述之酷刑；其未犯下種族滅絕或其他暴行，亦未利用非法芬太尼殺害美國人。因此，涉及中國之案件必將更具爆炸性，蓋中國官員已對維吾爾及其他突厥語系民族犯下種族滅絕及其他反人類罪行。鑑於中共政權之殘暴，原告極可能依據《外國侵權行為索賠法》，就此類駭人聽聞之官方行為提起訴訟。<P>
+<P>	無論是特朗普或拜登政府，均已正式認定中國犯有且持續犯有種族滅絕罪。依據《防止及懲治種族滅絕罪公約》第一條，美國負有“預防及懲治”此類行為之義務。<P>
+<P>	此外，新任中國政府極可能要求美國移交已流亡美國之前中國官員。由於中美間並無引渡條約，法律爭端必將進入未知領域。美國或可驅逐逃亡之中國官員，然恐缺乏直接將其移交予中國繼承政府之機制。<P>
+<P>	美國政府應嘗試透過“法庭之友”簡報等手段，引導法院判決向維護美國及他人正義之方向傾斜，此等他人，或為繼承之中國政府，或非也。<P>
+<P>	由於爭議由法官而非美國官員裁決，案件將取決於法律之技術問題，而非必然考慮國家利益。是以，無論新中國政府與華盛頓關係如何友好，法律爭端之複雜性實屬難免。<P>
   
 ### 	情景二：平稳過渡至敵美之中國政府
-<P>	倘若中國政權更迭後，新任統治集團與美方關係惡劣，美政府應於其就職之際，即凍結一切中國國家及中共資產，以待日後必然發生之權益索賠糾紛解決。凍結令可隨時解除，然若未及時實施，則中國政府或中共恐將移轉並隱匿資產，致使欲於美國法院尋求救濟者徒勞無功。
+<P>	倘若中國政權更迭後，新任統治集團與美方關係惡劣，美政府應於其就職之際，即凍結一切中國國家及中共資產，以待日後必然發生之權益索賠糾紛解決。凍結令可隨時解除，然若未及時實施，則中國政府或中共恐將移轉並隱匿資產，致使欲於美國法院尋求救濟者徒勞無功。<P>
 <P>	屆時，爭議必將分為三大類：一、 新任中國統治集團將效法情景一，試圖追索於美逃亡之中國個人及其家屬之資產。二、 新任統治集團將要求華盛頓解除資產凍結。三、 私人主體將依據《外國侵權行為索賠法》及其他法令提起訴訟。
-<P>	此類訴訟必將涉及諸多難題，其中最根本者莫過於：美國法院應將中國資產之所有權歸屬於何人？
-<P>	迄今為止，美國政府尚未須對中國中央政府與中共資產進行區分，蓋華盛頓向來將二者視為一體。誠然，中國乃一黨治國之體制，然於法理上，黨與國家乃屬不同之實體。中國中央政府即為國家，故具主權地位；相對而言，中共並無權在美國法院主張主權豁免。
-<P>	所謂“所有權”——至少依美國定義而言——對於中國中央政府與中共資產並無特殊關聯；於中國，真正的核心概念乃“控制權”。通常而言，主權者（即中國中央政府）乃資產之所有者，由國務院與總理統理。雖國有企業、國有銀行及軍隊在名義上屬“國家”範疇，然其皆受命於黨，尤以習近平治下為甚，黨正迅速接管昔日國家之職權。
-<P>	譬如，解放軍隸屬於中共中央軍事委員會，而非國家之中央軍事委員會（後者已成虛銜）。正如毛澤東及其歷任繼任者所言，“黨指揮槍”。習近平於此點之主張尤為頻繁。
-<P>	倘若諸機構皆受命於黨，且由黨指派管理層並行使所有所有權之屬性，則該等資產實質上是否即屬黨產？答案顯然是肯定的，尤因中國之諸機構，皆與其他組織相同，其效忠對象非國家，乃屬黨。黨要求中國境內所有個人與實體絕對服從。中國政治權力之巔峰，非屬國務院或全國人大，乃屬中共中央政治局常委會。任何主張中央政府擁有資產之論點（除國務院辦公室之家具外），皆屬疑點重重。
-<P>	中共作為最高權威，何以不具主權豁免權？其一，中共自選定中國政府之形式，使政府與黨在法律上有所區別。於習近平之前，兩者分工尚屬明晰。此外，中國尚有八個獲承認之政黨，雖屬裝飾之用，然其於全國人大中確實具備官方角色。基於此等形式，其法律後果不容忽視。倘中共僅為九黨之一，縱其權傾天下，又焉能被視為國家主權？黨於中國雖強於中央政府，然其本身並非主權。
-<P>	此舉是否屬“重形式而輕實質”？誠然如此，然此形式乃中共自選。若其形式於某些面向不利於自身，亦無從責怪他人。
-<P>	此種“政府與黨”之區別是否有實質影響？答案是肯定的。例如，在美國針對中國政府傳播新冠病毒之損害賠償訴訟中，原告已於德州、佛州及加州等多地提起聯邦集體訴訟；亦有案件於內華達州進行。此類案件雖常因《外國主權豁免法》而難以勝訴，原告須證明損害係由中共政策而非中央政府政策所致，然鑑於政府官員多具中共黨籍，且各級機關皆由官員與黨委共同掌舵，原告仍具備主張中共應負法律責任之理據。
-<P>	中共擁有資產，含解放軍之資產。鑒於解放軍實為黨軍，其所有資產均應為原告追索之標的。
-<P>	此說或顯荒謬，然若進一步推之：若國有企業與銀行皆屬黨產，則其亦須受訴訟約束。例如，中國航空公司之飛機，或於美停泊，或於美領空飛行，無論其為波音機型或軍用艦艇，聯邦法院何須為一敵對政府之利益而行事？尤其當繼承之中國政府亦屬敵對時，華盛頓應協助原告，使中共須為其行為負責。
-<P>	若新任敵對政府企圖索取仍由中共殘餘勢力控制之資產，美國或不願協助任何一方，唯應維持凍結令，以確保資產足以償付索賠。
+<P>	此類訴訟必將涉及諸多難題，其中最根本者莫過於：美國法院應將中國資產之所有權歸屬於何人？<P>
+<P>	迄今為止，美國政府尚未須對中國中央政府與中共資產進行區分，蓋華盛頓向來將二者視為一體。誠然，中國乃一黨治國之體制，然於法理上，黨與國家乃屬不同之實體。中國中央政府即為國家，故具主權地位；相對而言，中共並無權在美國法院主張主權豁免。<P>
+<P>	所謂“所有權”——至少依美國定義而言——對於中國中央政府與中共資產並無特殊關聯；於中國，真正的核心概念乃“控制權”。通常而言，主權者（即中國中央政府）乃資產之所有者，由國務院與總理統理。雖國有企業、國有銀行及軍隊在名義上屬“國家”範疇，然其皆受命於黨，尤以習近平治下為甚，黨正迅速接管昔日國家之職權。<P>
+<P>	譬如，解放軍隸屬於中共中央軍事委員會，而非國家之中央軍事委員會（後者已成虛銜）。正如毛澤東及其歷任繼任者所言，“黨指揮槍”。習近平於此點之主張尤為頻繁。<P>
+<P>	倘若諸機構皆受命於黨，且由黨指派管理層並行使所有所有權之屬性，則該等資產實質上是否即屬黨產？答案顯然是肯定的，尤因中國之諸機構，皆與其他組織相同，其效忠對象非國家，乃屬黨。黨要求中國境內所有個人與實體絕對服從。中國政治權力之巔峰，非屬國務院或全國人大，乃屬中共中央政治局常委會。任何主張中央政府擁有資產之論點（除國務院辦公室之家具外），皆屬疑點重重。<P>
+<P>	中共作為最高權威，何以不具主權豁免權？其一，中共自選定中國政府之形式，使政府與黨在法律上有所區別。於習近平之前，兩者分工尚屬明晰。此外，中國尚有八個獲承認之政黨，雖屬裝飾之用，然其於全國人大中確實具備官方角色。基於此等形式，其法律後果不容忽視。倘中共僅為九黨之一，縱其權傾天下，又焉能被視為國家主權？黨於中國雖強於中央政府，然其本身並非主權。<P>
+<P>	此舉是否屬“重形式而輕實質”？誠然如此，然此形式乃中共自選。若其形式於某些面向不利於自身，亦無從責怪他人。<P>
+<P>	此種“政府與黨”之區別是否有實質影響？答案是肯定的。例如，在美國針對中國政府傳播新冠病毒之損害賠償訴訟中，原告已於德州、佛州及加州等多地提起聯邦集體訴訟；亦有案件於內華達州進行。此類案件雖常因《外國主權豁免法》而難以勝訴，原告須證明損害係由中共政策而非中央政府政策所致，然鑑於政府官員多具中共黨籍，且各級機關皆由官員與黨委共同掌舵，原告仍具備主張中共應負法律責任之理據。<P>
+<P>	中共擁有資產，含解放軍之資產。鑒於解放軍實為黨軍，其所有資產均應為原告追索之標的。<P>
+<P>	此說或顯荒謬，然若進一步推之：若國有企業與銀行皆屬黨產，則其亦須受訴訟約束。例如，中國航空公司之飛機，或於美停泊，或於美領空飛行，無論其為波音機型或軍用艦艇，聯邦法院何須為一敵對政府之利益而行事？尤其當繼承之中國政府亦屬敵對時，華盛頓應協助原告，使中共須為其行為負責。<P>
+<P>	若新任敵對政府企圖索取仍由中共殘餘勢力控制之資產，美國或不願協助任何一方，唯應維持凍結令，以確保資產足以償付索賠。<P>
   
 ### 	情景三：中共覆滅後之混亂
-<P>	最可能之情景乃是陷入混亂，蓋因習近平之政權必將鬥爭到底，恐將阻礙平穩過渡，並造成長年之不確定性。
-<P>	習近平絕非戈爾巴契夫。戈爾巴契夫於一九九一年選擇向“歷史潮流”屈服，不以武力維持蘇聯統一。然習近平於二〇一二載掌權後，曾對蘇聯領導人表示極度鄙夷，顯示其必將戰鬥到底。
-<P>	中共雖顯強盛，然其經濟引擎已入衰退之期。新冠疫情後經濟未能復甦之事實，已昭示此種衰退之開始。目前中國社會瀰漫著陰霾，經濟問題已屬結構性，且習近平之毛派思想正阻礙常理之解決。
-<P>	中共之失敗將引發政治動盪。歷史證明，經濟低迷常令民眾不滿，而此種失望對中共而言極為危險。
-<P>	面對此種可能之危機，美國應當如何應對？華盛頓應於政治瓦解之徵兆初現時，即促使美國人撤離。此外，應凍結中國在美資產，尤以銀行資產為重。中國銀行規模宏大且與美金融體緊密相連，若其發生動盪，將影響全球。
-<P>	亦須關注糧食安全。美國應考慮在危機前夕，先行查緝或凍結中國之糧食相關資產。例如，中國企業收購美國食品巨頭，常使其營運轉向服務中國需求，損及美國利益。鑒於中國企業之所有權常受制於其體制之命令，美國政府應將其視為敵對國家之工具。
-<P>	此外，對於軍事基地周邊之中國土地所有權，亦須嚴加防範。如北達科他州之案例，中國企業於空軍基地附近之土地開發，恐成為監控美軍衛星或干擾無人機之據點。
-<P>	最後，對於從中國撤離之美國人，美方應及早採取行動。鑒於中共對法治之漠視，外國人隨時面臨遭任意扣押之風險，美方不應寄望於中國政府之自律，而應在政治崩解之初，即採取預防措施。
-<P>	面對可能之混亂，美國決策者不應試圖操弄中國政權之更迭，以扶持特定派系，因其往往無法洞悉中國之實情。美國之首要責任，乃是保護美國公民及其利益，而非試圖扮演中國政治之仲裁者。
+<P>	最可能之情景乃是陷入混亂，蓋因習近平之政權必將鬥爭到底，恐將阻礙平穩過渡，並造成長年之不確定性。<P>
+<P>	習近平絕非戈爾巴契夫。戈爾巴契夫於一九九一年選擇向“歷史潮流”屈服，不以武力維持蘇聯統一。然習近平於二〇一二載掌權後，曾對蘇聯領導人表示極度鄙夷，顯示其必將戰鬥到底。<P>
+<P>	中共雖顯強盛，然其經濟引擎已入衰退之期。新冠疫情後經濟未能復甦之事實，已昭示此種衰退之開始。目前中國社會瀰漫著陰霾，經濟問題已屬結構性，且習近平之毛派思想正阻礙常理之解決。<P>
+<P>	中共之失敗將引發政治動盪。歷史證明，經濟低迷常令民眾不滿，而此種失望對中共而言極為危險。<P>
+<P>	面對此種可能之危機，美國應當如何應對？華盛頓應於政治瓦解之徵兆初現時，即促使美國人撤離。此外，應凍結中國在美資產，尤以銀行資產為重。中國銀行規模宏大且與美金融體緊密相連，若其發生動盪，將影響全球。<P>
+<P>	亦須關注糧食安全。美國應考慮在危機前夕，先行查緝或凍結中國之糧食相關資產。例如，中國企業收購美國食品巨頭，常使其營運轉向服務中國需求，損及美國利益。鑒於中國企業之所有權常受制於其體制之命令，美國政府應將其視為敵對國家之工具。<P>
+<P>	此外，對於軍事基地周邊之中國土地所有權，亦須嚴加防範。如北達科他州之案例，中國企業於空軍基地附近之土地開發，恐成為監控美軍衛星或干擾無人機之據點。<P>
+<P>	最後，對於從中國撤離之美國人，美方應及早採取行動。鑒於中共對法治之漠視，外國人隨時面臨遭任意扣押之風險，美方不應寄望於中國政府之自律，而應在政治崩解之初，即採取預防措施。<P>
+<P>	面對可能之混亂，美國決策者不應試圖操弄中國政權之更迭，以扶持特定派系，因其往往無法洞悉中國之實情。美國之首要責任，乃是保護美國公民及其利益，而非試圖扮演中國政治之仲裁者。<P>
   
 ## 	結語
-<P>	記者布萊特·史蒂芬斯曾言：「未來十載，吾輩所面臨中華人民共和國首要挑戰，非其崛起，乃其衰落。」誠如精闢之論，世人毋須憂慮格雷厄姆·艾里森所言之“修昔底德陷阱”——彼論述乃聚焦於崛起之中國與衰落之美國間之對峙。
-<P>	現下，中國正急速衰落。除前文所述之諸多棘手問題外，更有人口崩塌之虞，此乃史所未見之劇烈人口萎縮預期。現今中国擁有約十四億人口，至二一〇〇載，恐將流失“逾半數之現有人口”。人口學乃形塑國家未來最根本之要素，亦乃文明興衰之終極主宰。
-<P>	因人口結構及其他種種因素，習近平定覺其實現所謂“歷史目標”之窗口期正趨於閉合。事實上，新華社於二〇二〇載曾刊載《習強調須爭分奪秒實現中國夢》一文，足見其心。習所言誠然不虛。地緣戰略分析機構之彼得·休西於二〇二三年四月曾言：“中國正處於懸崖邊緣。”此情境對美利堅及全球諸國皆構成嚴峻考驗：面對一個具備魯莽行事動機之軍事化政權，究竟當如何應對？
-<P>	數十年來，美國政策之基調實乃支持中共。自尼克森總統五十餘載前之歷史性訪華以來，尤於蘇聯解體之後，華盛頓一貫主張與中國建立聯繫，其理據乃認為中共終將察覺，維護現有國際體系實乃其自身利益所在。美國務院之羅伯特·佐耶克於二〇〇五年曾言，中國終將成為國際體系中“負責任之利益相關方”，此乃當時之普遍心態。
-<P>	然中國又何以不願加入該體系？畢竟，美方曾誤以為冷戰之終結，即象徵人類已達轉折點，正如弗朗西斯·福山於其名著《歷史的終結與最後的人》所主張：雖歷史事件仍將發生，然至冷戰末期，“人類社會經由各類政體之演進，已臻於現代自由民主與市場資本主義之巔峰。”人類實已抵達“意識形態演化之終點”。
-<P>	今時今日，雖無人再盲信福山之樂觀願景，然特朗普政府仍與中國保持接觸。然隨中共步入踉蹌，此種“接觸政策”亦可能轉化為險境。
-<P>	美利堅若能採取新進路，或可規避——或至少減輕——上述後果。若能避免在中國持有資產，則於中共政權變動或覆滅時，對於追索資產之難題，便可從根本上予以化解。是以，現下乃是竭力切斷與彼地聯繫之關鍵時刻
+<P>	記者布萊特·史蒂芬斯曾言：「未來十載，吾輩所面臨中華人民共和國首要挑戰，非其崛起，乃其衰落。」誠如精闢之論，世人毋須憂慮格雷厄姆·艾里森所言之“修昔底德陷阱”——彼論述乃聚焦於崛起之中國與衰落之美國間之對峙。<P>
+<P>	現下，中國正急速衰落。除前文所述之諸多棘手問題外，更有人口崩塌之虞，此乃史所未見之劇烈人口萎縮預期。現今中国擁有約十四億人口，至二一〇〇載，恐將流失“逾半數之現有人口”。人口學乃形塑國家未來最根本之要素，亦乃文明興衰之終極主宰。<P>
+<P>	因人口結構及其他種種因素，習近平定覺其實現所謂“歷史目標”之窗口期正趨於閉合。事實上，新華社於二〇二〇載曾刊載《習強調須爭分奪秒實現中國夢》一文，足見其心。習所言誠然不虛。地緣戰略分析機構之彼得·休西於二〇二三年四月曾言：“中國正處於懸崖邊緣。”此情境對美利堅及全球諸國皆構成嚴峻考驗：面對一個具備魯莽行事動機之軍事化政權，究竟當如何應對？<P>
+<P>	數十年來，美國政策之基調實乃支持中共。自尼克森總統五十餘載前之歷史性訪華以來，尤於蘇聯解體之後，華盛頓一貫主張與中國建立聯繫，其理據乃認為中共終將察覺，維護現有國際體系實乃其自身利益所在。美國務院之羅伯特·佐耶克於二〇〇五年曾言，中國終將成為國際體系中“負責任之利益相關方”，此乃當時之普遍心態。<P>
+<P>	然中國又何以不願加入該體系？畢竟，美方曾誤以為冷戰之終結，即象徵人類已達轉折點，正如弗朗西斯·福山於其名著《歷史的終結與最後的人》所主張：雖歷史事件仍將發生，然至冷戰末期，“人類社會經由各類政體之演進，已臻於現代自由民主與市場資本主義之巔峰。”人類實已抵達“意識形態演化之終點”。<P>
+<P>	今時今日，雖無人再盲信福山之樂觀願景，然特朗普政府仍與中國保持接觸。然隨中共步入踉蹌，此種“接觸政策”亦可能轉化為險境。<P>
+<P>	美利堅若能採取新進路，或可規避——或至少減輕——上述後果。若能避免在中國持有資產，則於中共政權變動或覆滅時，對於追索資產之難題，便可從根本上予以化解。是以，現下乃是竭力切斷與彼地聯繫之關鍵時刻.<P>
