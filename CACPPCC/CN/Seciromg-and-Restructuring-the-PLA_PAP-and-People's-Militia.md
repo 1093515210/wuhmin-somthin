@@ -1,5 +1,5 @@
 **本章由GEMMA与GPT大語言模型輔助翻譯，英漢雙語對照僅供個人學習、學術探討及地緣政治沙盤推演研究之用，不投入任何商業或營利性用途。英文原作版權完全歸原作者及原出版/智庫機構所有，[英文原作请点此处](https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf)访問。譯文中譯名與歷史術語已由人工進行考證校正，以還原歷史與地理學之學術嚴謹性。本人完全尊重原作者的知識產權，若版權方認為本項目的非營利性對照展示有所不妥，請隨時通過 Issue 聯繫本人，本人將在第一時間配合刪除相關內容。**
-# 	SECURING AND RESTRUCTURING THE PLA, PAP, AND PEOPLE’S MILITIA/戡定與重組：解放軍、武警及民兵之防務整肅
+# 	Securing and restruring the PLA, PAP, and People's Militia/戡定與重組：解放軍、武警及民兵之防務整肅
 **里克·費舍**
 This study imagines that a future crisis comes to terminate the dictatorship of the CCP. It then offers practical advice to other governments to help a new Chinese government survive and make choices that could forge a new era of stability. It also considers briefly the burdens of failing to convince a post-CCP government to choose accommodation and peace.
 <P>	本研究假定未來之危機將終結中共獨裁統治。據此，本文旨在為各國政府提供實務建議，以協助新任中國政府生存，並於抉擇中開創穩定新紀元。同時，本文亦簡要考量若未能說服後中共政府選擇和睦與和平，將會帶來何種負擔。<P>	
