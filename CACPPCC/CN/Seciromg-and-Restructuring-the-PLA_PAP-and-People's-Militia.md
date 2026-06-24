@@ -1,148 +1,280 @@
 **本章由GEMMA与GPT大語言模型輔助翻譯，英漢雙語對照僅供個人學習、學術探討及地緣政治沙盤推演研究之用，不投入任何商業或營利性用途。英文原作版權完全歸原作者及原出版/智庫機構所有，[英文原作请点此处](https://www.smhric.org/images/Hudson-Institute/China+after+Communism+-+Preparing+for+a+Post-CCP+China.pdf)访問。譯文中譯名與歷史術語已由人工進行考證校正，以還原歷史與地理學之學術嚴謹性。本人完全尊重原作者的知識產權，若版權方認為本項目的非營利性對照展示有所不妥，請隨時通過 Issue 聯繫本人，本人將在第一時間配合刪除相關內容。**
 # 	SECURING AND RESTRUCTURING THE PLA, PAP, AND PEOPLE’S MILITIA/戡定與重組：解放軍、武警及民兵之防務整肅
-<P>	里克·費舍
-<P>	本研究假定未來之危機將終結中共獨裁統治。據此，本文旨在為各國政府提供實務建議，以協助新任中國政府生存，並於抉擇中開創穩定新紀元。同時，本文亦簡要考量若未能說服後中共政府選擇和睦與和平，將會帶來何種負擔。
-<P>	協助後中共時代之中國，保障、理順並重構其人民解放軍、武警及民兵，將成為民主陣營關鍵聯盟工程。此舉對於促進中國多元政治發展之新時代、以及創造亞洲乃至全球和平穩定新局，皆屬不可或缺。
-<P>	此乃一項艱巨之工程：解放軍、武警及公安部之全職人員共計四百五十九萬人；據二〇一八年之中國資料顯示，民兵兼職人員更達八百萬之巨。
-<P>	與一九九一年覆滅之蘇聯共產黨不同，於本研究假定之情景中，中共之垮台乃發生於其即將恢復亞洲霸權、並邁向全球霸權之關鍵時刻。中共視此種霸權為必要手段，旨在削弱並控制足以威脅其國內獨裁地位之競爭性政體。
-<P>	必須理解，旨在達成最終霸權及強化內部鎮壓之軍事建設，實為中共核心產出。此項任務透過徵調科技與研發部門（尤指理工大學及國有企業）資源，支撐起國家財政重擔。
-<P>	中共覆滅，將為世界帶來史詩級喘息。自一九四九年以來，中共估計已屠殺六至七千萬中國人；加其於新冠疫情醜聞中之角色，導致全球逾七百萬人喪生，此皆足以說明，若中共於征服台灣後發動多場戰爭，恐將導致數億人喪生。其目的乃在於鞏固全球霸權，進而摧毀民主國家，並強加中共设全球控制機構於世。
+**里克·費舍**
+This study imagines that a future crisis comes to terminate the dictatorship of the CCP. It then offers practical advice to other governments to help a new Chinese government survive and make choices that could forge a new era of stability. It also considers briefly the burdens of failing to convince a post-CCP government to choose accommodation and peace.
+<P>	本研究假定未來之危機將終結中共獨裁統治。據此，本文旨在為各國政府提供實務建議，以協助新任中國政府生存，並於抉擇中開創穩定新紀元。同時，本文亦簡要考量若未能說服後中共政府選擇和睦與和平，將會帶來何種負擔。<P>	
+Assisting a post-CCP-era China to secure, rationalize, and restructure its People’s Liberation Army, People’s Armed Police (PAP), and Militia of China will be a crucial coalition project of the democracies. It will be necessary to promote internal security for any new era of Chinese pluralistic political development, and to create a new era of peace and stability in Asia and globally.
+<P>	協助後中共時代之中國，保障、理順並重構其人民解放軍、武警及民兵，將成為民主陣營關鍵聯盟工程。此舉對於促進中國多元政治發展之新時代、以及創造亞洲乃至全球和平穩定新局，皆屬不可或缺。<P>	
+It will also be a gargantuan task: the full-time forces of the PLA, PAP, and Ministry of Public Security (MPS) account for 4.59 million personnel,【140】 while a 2018 Chinese source stated the part time Militia accounts for 8 million.【141】
+<P>	此乃一項艱巨之工程：解放軍、武警及公安部之全職人員共計四百五十九萬人；據二〇一八年之中國資料顯示，民兵兼職人員更達八百萬之巨。<P>	
+Unlike the fallen Communist Party of the Soviet Union (CPSU) in 1991, in the hypothetical scenario of this study, the CCP falls as it comes close to reviving its historic hegemonic position in Asia and is on its way to achieving global hegemony. The CCP views such hegemony as necessary to diminish and control competitive political systems that could threaten its dictatorship in China.
+<P>	與一九九一年覆滅之蘇聯共產黨不同，於本研究假定之情景中，中共之垮台乃發生於其即將恢復亞洲霸權、並邁向全球霸權之關鍵時刻。中共視此種霸權為必要手段，旨在削弱並控制足以威脅其國內獨裁地位之競爭性政體。<P>	
+One should understand that military building to eventual hegemony and ever greater internal repression was the CCP’s main product. This task dominated state funding by harnessing technological and R&D sectors, especially technical universities and state-owned corporations, to produce that power.
+<P>	必須理解，旨在達成最終霸權及強化內部鎮壓之軍事建設，實為中共核心產出。此項任務透過徵調科技與研發部門（尤指理工大學及國有企業）資源，支撐起國家財政重擔。<P>	
+The fall of the CCP would grant the world an epochal reprieve. The CCP’s killing of an estimated 60–70 million Chinese since1949【142】 and its role in the coronavirus scandal that has killed over 7 million worldwide【143】 illustrate how the party could potentially kill hundreds of millions more in multiple wars following a conquest of Taiwan. It would do so on the way to securing a global hegemony that would crush the democracies and impose global CCP organs of control.
+<P>	中共覆滅，將為世界帶來史詩級喘息。自一九四九年以來，中共估計已屠殺六至七千萬中國人；加其於新冠疫情醜聞中之角色，導致全球逾七百萬人喪生，此皆足以說明，若中共於征服台灣後發動多場戰爭，恐將導致數億人喪生。其目的乃在於鞏固全球霸權，進而摧毀民主國家，並強加中共设全球控制機構於世。<P>	
 
-## 盟友於中國重建中之角色
-<P>	倘若後中共政府仍延續中共之侵略綱領，或淪於前中共及解放軍精英反撲，則美、日及其盟友擁有足夠之戰略與常規武力，以作為威懾與 dissuade（阻遏）保障，將至關重要。然若新政府明顯傾向多元改革且具非戰鬥性之外交趨向，則其勢力必將薄弱，亟需即時援助。
-<P>	新政府首要自衛工程，乃在於迅速縮減國家安全部門規模，透過將軍事預算中用於採購、冗餘產能及研發資金，轉而用於支付大量退伍人員薪俸、福利及撫恤金，涵蓋解放軍、武警、民兵及科研產業。為助此工程，美、日或須於數週內組建一支具備規模（相當於一個師）、且通曉中文的重建軍團。此軍團應於中國境內採取策略性且廣泛部署，協助新政府於初期即挫敗政變陰謀，並儘速建立效忠於新政權內部安全與軍事管控機構。
-<P>	然此類外國政治與軍事援助團，若欲成功，新中國政府必須向美方及其盟友提供前所未有之准入權。盟友或可藉由承諾於中國、台灣及其他國家，協助培植一套與中共脫鉤、專業化之軍事、情報及官僚體系，以此說服新政府配合。
-<P>	同時，中共垮台初期，亦是盟友影響新政府外交與軍事目標最佳時機。盟友影響力，或將決定新政府之軍隊、警察、民兵及情報機構之規模與目標。在理順解放軍之前，盟友須完成下列重大任務：
-<P>	·說服後中共政府將“自由台灣”視為建立並維持多元改革之典範；
-<P>	·終止對北韓之支持；
-<P>	·遏止北韓、巴基斯坦及伊朗之核擴散；
-<P>	·解決與日本、韓國、台灣、越南、菲律賓、馬來西亞、印尼及印度之領土爭議；
-<P>	·拆解對南海之帝國式控制；
-<P>	·說服新政府放棄中共之全球及星際霸權目標。
-<P>	·上述行動均應促使軍事規模縮減。然欲使解放軍“適度化”，亦須避免蘇聯解體後之典型錯誤：即未能建立具約束力之常規與核武規模協議。中國未來能否受益於全球交流，取決於雙方是否能達成明確協議：即中國不具備征服民主國家之手段，正如民主國家亦不具備入侵並征服中國之手段。
-<P>	於此階段，後中共政府與民主國家應共同研議：中國軍隊應維持於何種規模，方能既不增加新政府負擔，又能捍衛穩定並應對全球人道危機。首先，新任解放軍陸軍是否可由十三個集團軍縮減至五個？空軍與海軍是否亦可減半？在失去內部鎮壓職能後，中國是否可僅保留極少數武警與民兵，專司救災任務，並大幅裁撤公安部？此類縮減亦須配合新型態戰略核穩定。
-<P>	待中國調整軍事規模後，其與民主國家可就太空領域之被動與主動軍事系統達成協議，並商議軍事系統之管制。蘇聯解體後之太空合作，可作為後中共時代外交參與之核心。太空合作將成為未來數十年乃至數世紀，實現太空經濟潛力真正引擎。
+## The Allies’ Role in Chinese Reconstruction/盟友於中國重建中之角色
+ Should a post-CCP government continue some part of the CCP’s program of aggression or fall to a counter-revolt of former CCP-PLA elites, it will be crucial for the United States, Japan, and their allies to have requisite strategic and conventional power as a hedge to deter and dissuade. However, if a new post-CCP government is clearly open to pluralistic reform and has non-belligerent foreign tendencies, it will likely be weak and require immediate assistance.
+<P>	倘若後中共政府仍延續中共之侵略綱領，或淪於前中共及解放軍精英反撲，則美、日及其盟友擁有足夠之戰略與常規武力，以作為威懾與 dissuade（阻遏）保障，將至關重要。然若新政府明顯傾向多元改革且具非戰鬥性之外交趨向，則其勢力必將薄弱，亟需即時援助。<P>	
+A key self-defense project for the new government will be the rapid reduction of the national security sector by diverting state funds from military budgets for procurement, redundant production capacity, and R&D. It should instead devote these funds to the continuation of salaries, benefits, and payouts for a large number of demobilization packages—for the PLA, PAP, Militia, as well as the production and research sectors. To assist this project, the United States and Japan may have only weeks to assemble a division-sized, Mandarin-speaking reconstruction corps. They should deploy it strategically and broadly in China to help the new government defeat countercoup plots in their early stages, then as quickly as possible begin to create loyal internal security and military control organs.【144】
+<P>	新政府首要自衛工程，乃在於迅速縮減國家安全部門規模，透過將軍事預算中用於採購、冗餘產能及研發資金，轉而用於支付大量退伍人員薪俸、福利及撫恤金，涵蓋解放軍、武警、民兵及科研產業。為助此工程，美、日或須於數週內組建一支具備規模（相當於一個師）、且通曉中文的重建軍團。此軍團應於中國境內採取策略性且廣泛部署，協助新政府於初期即挫敗政變陰謀，並儘速建立效忠於新政權內部安全與軍事管控機構。<P>	
+But for such a foreign political and military assistance corps to succeed, the new Chinese government will have to grant the US and its allies an unprecedented level of access. The allies may be able to persuade the new government to do so by making commitments—in China, Taiwan, and multiple other countries—to begin training a professional military, intelligence, and bureaucratic sector divorced from CCP control.
+<P>	然此類外國政治與軍事援助團，若欲成功，新中國政府必須向美方及其盟友提供前所未有之准入權。盟友或可藉由承諾於中國、台灣及其他國家，協助培植一套與中共脫鉤、專業化之軍事、情報及官僚體系，以此說服新政府配合。<P>	
+At the same time, the early post-CCP period may be the best period for the allies to influence the foreign and military objectives of a new government. The decisions they influence may in turn help determine the objectives and size of the new government’s army, police force, militia, and intelligence agencies. Before rationalizing the PLA, the allies will need to complete other major tasks:
+<P>	同時，中共垮台初期，亦是盟友影響新政府外交與軍事目標最佳時機。盟友影響力，或將決定新政府之軍隊、警察、民兵及情報機構之規模與目標。在理順解放軍之前，盟友須完成下列重大任務：<P>	
+•Convincing the post-CCP government to regard a free Taiwan as a living example of how to create and sustain pluralistic reform
+<P>	·說服後中共政府將“自由台灣”視為建立並維持多元改革之典範；<P>	
+•Ending support for North Korea
+<P>	·終止對北韓之支持；<P>	
+•Ending nuclear proliferation by North Korea, Pakistan, and Iran
+<P>	·遏止北韓、巴基斯坦及伊朗之核擴散；<P>	
+•Settling territorial disputes with Japan, Korea, Taiwan, Vietnam, the Philippines, Malaysia, Indonesia, and India
+<P>	·解決與日本、韓國、台灣、越南、菲律賓、馬來西亞、印尼及印度之領土爭議；<P>	
+•Dismantling imperial control of the South China Sea
+<P>	·拆解對南海之帝國式控制；<P>	
+•Convincing the new government to abandon CCP goals for global and galactic hegemony
+<P>	·說服新政府放棄中共之全球及星際霸權目標。<P>	
+All of these actions should enable or encourage requirements for a much smaller military force. But right-sizing the PLA will also require avoiding a key mistake of the post-CPSU period: the failure to create enforceable agreements for conventional and nuclear force levels. The future of China’s ability to benefit from global access should rest on a clear agreement that it will not have the means to conquer the democracies, as they will not have the means to invade and conquer China.
+<P>	·上述行動均應促使軍事規模縮減。然欲使解放軍“適度化”，亦須避免蘇聯解體後之典型錯誤：即未能建立具約束力之常規與核武規模協議。中國未來能否受益於全球交流，取決於雙方是否能達成明確協議：即中國不具備征服民主國家之手段，正如民主國家亦不具備入侵並征服中國之手段。<P>	
+At this point, it becomes rational for the post-CCP government and the democracies to consider at what level would a Chinese military force not burden the new government while also being able to defend stability and respond to global humanitarian crises. First, could a new PLA Ground Force (PLAGF) get by with five group armies instead of 13? Could a halving of the PLA Air Force (PLAAF) and PLA Navy (PLAN) follow? With its internal suppression mission gone, could China retain a fraction of the PAP and Militia mainly for emergency and disaster relief missions, with a steep reduction in the MPS? Such reductions would also require a new strategic nuclear stability.
+<P>	於此階段，後中共政府與民主國家應共同研議：中國軍隊應維持於何種規模，方能既不增加新政府負擔，又能捍衛穩定並應對全球人道危機。首先，新任解放軍陸軍是否可由十三個集團軍縮減至五個？空軍與海軍是否亦可減半？在失去內部鎮壓職能後，中國是否可僅保留極少數武警與民兵，專司救災任務，並大幅裁撤公安部？此類縮減亦須配合新型態戰略核穩定。<P>	
+After China adjusts the size of its military, it and the democracies can create agreements on passive and active military space systems and negotiate controls for the active military systems. Russia’s post-CPSU space program can serve as an example of how space cooperation can be a centerpiece of post-CCP foreign engagement. Space cooperation can then become a real engine for realizing, in the coming decades and centuries, the potential of the space economy.
+<P>	待中國調整軍事規模後，其與民主國家可就太空領域之被動與主動軍事系統達成協議，並商議軍事系統之管制。蘇聯解體後之太空合作，可作為後中共時代外交參與之核心。太空合作將成為未來數十年乃至數世紀，實現太空經濟潛力真正引擎。<P>	
 
- ## 解放軍陸軍 (PLAGF)
-<P>	透過中央集權的聯合同步指揮、中央軍委層級的聯合參謀部，以及五大戰區的架構，解放軍陸軍（雖然基於 13 個集團軍與 80 個合成旅）已轉型為模組化部隊。其戰力投射能力包含 6 個空降旅、13 個陸軍航空旅、11 個海軍陸戰旅及 3 個空中突擊旅。重型履帶裝甲與火砲由中型輪式裝甲與火砲，以及專業的輕型/特種部隊進行補充。在 2030 年代之前，陸軍亦開始部署由無人機與戰鬥型人型機器人輔助的輕型與中型無人戰鬥車輛，以實現空降投射能力。進入 2020 年代中期，解放軍已擁有多種部署戰區導彈的方式：
-<P>	解放軍火箭軍： DF-26；DF-21A/C/D 反艦彈道飛彈 (ASBM)；DF-17 高超音速滑翔載具 (HGV)；DF-16；DF-15；DF-11A；CJ-10 陸攻巡弋飛彈 (LACM)。
-<P>	解放軍空軍： CJ-20 陸攻巡弋飛彈；YJ-21 空射彈道飛彈 (ALBM)；以及更大規模的空射彈道飛彈。
-<P>	解放軍海軍： YJ-21 反艦彈道飛彈，且更遠程的反艦彈道飛彈亦在研發中。
-<P>	陸軍亦開始組建配備北方工業 PHL-16 火砲系統的炮兵旅，該系統可發射兩枚 750 毫米短程彈道飛彈 (SRBM) 或八枚短程範圍的 370 毫米飛彈。根據 6 架搭載 H-6K/J/N 轟炸機進行巡弋飛彈任務的架次，戰區彈道飛彈的總數可能落在 4,000 至 5,000 枚或更多。
+## CCP Hegemonic Ambitions and Force Buildup/中共之霸權野心與武力擴張
 
- ## 解放軍海軍 (PLAN)
-<P>	透過海軍的三支艦隊（若攻佔台灣則為四支），中共得以將其力量延伸至整個亞洲乃至全球。預計到 2030 年，其艦艇數量將達到 550 艘；並計劃在 2040 年代擁有 10 個航空母艦作戰群，以及首批完全核動力航母、巡洋艦與補給群。目前，海軍核潛艇的產量大幅激增，這些艦艇能更有效地保護中國現有的 12 艘核彈頭潛艇 (SSBN)，並對美國海軍構成威脅。此外，海軍正建造 25 艘大型兩棲突擊艦/兩棲船塢運輸艦 (LHD/LPD)，以擴展其戰力投射選項。中國的無人潛艇、水面艦艇與大型戰鬥飛機均已達世界級水準。
+The fall of the CCP will be crucial to human development. The party is currently assembling the world’s greatest military force not to defend itself but to project power, become a hegemon, and suppress opposition to sustain its dictatorship. Since the June 1989 demonstrations that culminated in the Tiananmen Massacre, the CCP has been building a military force for global domination and not just national defense. It identified foreign democratic and liberal systems as a key threat to its dictatorship, so it decided it needed to displace and suppress them. The CCP then implemented broad technology modernization, supported espionage, and devised plans to dominate Asia. These moves could help it become a global military and space power.
 
- ## 解放軍空軍 (PLAAF)
-<P>	空軍擁有 1,800 架戰鬥機，其中包括約 900 架第四代戰鬥機、200 架成都 J-20 第五代戰鬥機，以及先進的第六代戰鬥機研發計畫。一個世界級的無人戰鬥空中載具 (UCAV) 部門很快將利用人工智慧，生產戰鬥機/轟炸機規模的自主協同平台 (ACP)。H-20 飛翼戰略隱形轟炸機即將加入由 150 架現代化 H-6K/J/N 轟炸機組成的機隊。此外，日益壯大的 Y-20 重型運輸機機隊（含空中加油版本）使其具備全球戰力投射能力。
-<P>	人民武裝警察 (PAP)
+中共的垮台對人類發展至關重要。該黨目前正在組建全球最強大的軍事力量，其目的並非為了自衛，而是為了投射力量、成為霸權，並藉由鎮壓反對勢力以維持其獨裁統治。自 1989 年 6 月那場以天安門大屠殺告終的示威活動以來，中共便一直在打造一支旨在實現全球統治，而非僅止於國防的軍隊。其將外國的民主與自由體制視為對其獨裁統治的關鍵威脅，因此決定必須取代並壓制這些體制。隨後，中共實施了廣泛的技術現代化、支持間諜活動，並制定了主導亞洲的計畫。這些舉措可能助其成為全球性的軍事與太空強權。
+
+Simply by falling, the CCP will dramatically decrease China’s ability to fight multiple wars while trying to achieve global hegemony. The Chinese book Revealing the Six Wars China Must Fight in the Coming 50 Years provided an early 2010s preview of these wars, and listed the following purposes for the six wars and their potential time frames:
+
+僅僅透過垮台，中共便能大幅削弱中國在試圖達成全球霸權時，同時進行多場戰爭的能力。中國著作《揭秘中國未來 50 年必須進行的六場戰爭》在 2010 年代初期便對這些戰爭進行了預演，並列出了這六場戰爭的目的及其可能的發生時間表：
+
+1-To unify Taiwan (2020–25)
+
+統一台灣（2020–25）
+
+2. To recover the various islands of the South China Sea (2025–30)
+
+收復南海各島嶼（2025–30）
+
+3. To recover Southern Tibet, or Arunachal Pradesh (2035–40)
+
+收復西藏南部，即阿魯納恰爾邦（2035–40）
+
+4. To recover the Diaoyutai and Ryukyu Islands (2040–45)
+
+收復釣魚台與琉球群島（2040–45）
+
+5. To unify Outer Mongolia (2045–50)
+
+統一外蒙古（2045–50）
+
+6. To recover the territory seized by Russia (2055–60)【145】
+
+收復被俄羅斯奪取之領土（2055–60）【145】
+
+While this book was not official CCP policy, its wide circulation on the Chinese internet implied it had tacit approval from Chinese Propaganda Department censors, perhaps to warn Chinese citizens. It does not mention that these wars stood a strong chance of involving the military forces of the United States and Japan.
+
+雖然此書並非中共的官方政策，但其在中國互聯網上的廣泛流傳，暗示其已獲得中國中宣部審查人員的默許，或許是為了對中國公民發出警告。然而，該書並未提及這些戰爭極有可能會捲入美國與日本的軍事力量。
+
+To assist with its global projection plans, the CCP created quasi-alliances with an increasing military character in Central Asia (Shanghai Cooperation Organization, which has nine members and may include 12 others), Africa (China-Africa Peace and Security Forum, which has 53 African members), and the four-continent spanning BRICS (which includes Brazil, Russia, India, China, and South Africa). With added leverage from its $1 trillion Belt and Road Initiative (BRI) aid program, China gained global access to military bases in Djibouti, Myanmar, Thailand, Indonesia, Cuba, Kenya, Nigeria, Mozambique, Gabon, Bangladesh, Papua New Guinea, the Solomon Islands, Tajikistan, Cambodia, Pakistan, the United Arab Emirates, Singapore, Sri Lanka, Angola, Equatorial Guinea, Seychelles, Tanzania, Venezuela, and Argentina.【146】
+
+為了協助其全球力量投射計畫，中共在中央亞細亞（上海合作組織，擁有 9 個成員國，可能還包括另外 12 個）、非洲（中非和平與安全論壇，擁有 53 個非洲成員國），以及跨越四大洲的金磚國家（BRICS，包含巴西、俄羅斯、印度、中國與南非）建立了具有日益增強之軍事色彩的準同盟。憑藉其價值一兆美元的「一帶一路」倡議（BRI）援助計畫所提供的額外槓桿，中國已在全球範圍內獲得了位於吉布地、緬甸、泰國、印尼、古巴、肯亞、奈及利亞、莫三比克、加彭、孟加拉、巴布亞紐幾內亞、索羅門群島、塔吉克、柬埔寨、巴基斯坦、阿拉伯聯合大公國、新加坡、斯里蘭卡、安哥拉、赤道幾內亞、塞席爾、坦尚尼亞、委內瑞拉及阿根廷等地的軍事基地使用權。【146】
+
+In addition, in 2012 Russia’s Vladimir Putin sought a military entente with the CCP, which Xi Jinping obliged. The two countries conducted joint air, naval, and land exercises to prepare for a Taiwan invasion and likely to coordinate strategic nuclear forces.【147】 China’s military support for Putin’s Ukraine War staved off Russia’s defeat and increased CCP desires for global military projection.
+
+此外，2012 年俄羅斯總統普丁（Vladimir Putin）尋求與中共建立軍事協定，習近平亦予以回應。兩國進行了空軍、海軍及陸軍的聯合演習，以應對入侵台灣之情境，且極可能在戰略核武力量方面進行協調。【147】中國對普丁烏克蘭戰爭的軍事支持，延緩了俄羅斯的戰敗，並增強了中共對於全球軍事力量投射的渴望。
+
+With access to US, Israeli, and European military technology during the 1980s, mainly Russian tech from the end of the 1980s onward, and with its own rapidly built up military-technical research and production sectors,【148】 the PLA has now achieved near-world-class capabilities that have begun to exceed those of the United States. A 2024 study by the Australian Strategic Policy Institute found China was the leader in 37 out of 44 critical technologies.【149】
+Under the leadership of CCP and PLA leader Xi Jinping, by late 2015 the PLA had completed crucial reforms that enabled it to realize joint warfare strategies and operations. Most important was the replacement of seven military districts with five theater commands, which enabled real joint force integration.
+
+在中共與解放軍領導人習近平的領導下，截至 2015 年底，解放軍已完成關鍵改革，使其能夠實現聯合作戰戰略與行動。其中最重要的一項，是將原有的七大軍區改組為五大戰區，這實現了真正的聯合作戰力量整合。
+
+In December 2015, the PLA created the Strategic Support Force (SSF), which centralized space warfare and space power projection and integrated vast intelligence gathering, communications, cyberwarfare, and psychological operations. This, in turn, enabled faster integration of fifth- and sixth-generation technologies.
+
+2015 年 12 月，解放軍成立了戰略支援部隊（SSF），將太空作戰與太空力量投射進行集中化管理，並整合了龐大的情報蒐集、通訊、網絡戰及心理戰功能。這進而使得第五代與第六代技術的整合得以更加迅速。
+
+But the PLA apparently decided that placing numerous and broad space, cyber, and intelligence missions under one command was unwieldy and in April 2024 divided the SSF into three new services that enable a greater focus for resources and operations—in coordination with the PLA’s five theater commands. The PLA Aerospace Force commands China’s civil and military space programs and likely shares with the PLA Air Force missions below low earth orbit in near space. The PLA Cyberspace Force not only defends PLA cyber networks and assists internal controls, but also conducts broad foreign cyberespionage and cyberwarfare operations. The PLA Information Support Force supports the PLA theater commands with construction and operation of information systems in support of PLA joint force strategies.
+
+然而，解放軍顯然認為將眾多且廣泛的太空、網絡及情報任務置於單一指揮架構下顯得過於臃腫，因此在 2024 年 4 月將戰略支援部隊拆分為三個新的兵種，以便在與解放軍五大戰區協調的同時，能更集中地投入資源與執行行動。其中，解放軍航天部隊（PLA Aerospace Force）指揮中國的民用與軍用太空計畫，且可能與解放軍空軍共同執行近地軌道以下的近太空任務。解放軍網絡部隊（PLA Cyberspace Force）不僅負責防禦解放軍的網絡系統並協助內部管控，還進行廣泛的對外網絡間諜活動與網絡戰行動。解放軍信息支援部隊（PLA Information Support Force）則負責建設與運行信息系統，以支援解放軍戰區的聯合作戰戰略。
+
+ ### PLA Ground Force/解放軍陸軍 (PLAGF)
+With centralized joint command, the Joint Staff Department at the CMC level, and five theater commands, the PLAGF (though based on 13 group armies and 80 combined arms brigades) became a modular force, with the power projection capabilities of six airborne, 13 army aviation, 11 marine, and three air assault brigades.【150】 Heavy tracked armor and artillery were supplemented by medium-weight wheeled armor and artillery and specialized light/special forces units. Before the 2030s the PLAGF was also fielding light and medium unmanned combat vehicles assisted by unmanned aircraft and combat humanoid robots—which enable airborne projection. Into the mid-2020s, the PLA had multiple ways to deploy theater missiles:
+<P>	透過中央集權的聯合同步指揮、中央軍委層級的聯合參謀部，以及五大戰區的架構，解放軍陸軍（雖然基於 13 個集團軍與 80 個合成旅）已轉型為模組化部隊。其戰力投射能力包含 6 個空降旅、13 個陸軍航空旅、11 個海軍陸戰旅及 3 個空中突擊旅。重型履帶裝甲與火砲由中型輪式裝甲與火砲，以及專業的輕型/特種部隊進行補充。在 2030 年代之前，陸軍亦開始部署由無人機與戰鬥型人型機器人輔助的輕型與中型無人戰鬥車輛，以實現空降投射能力。進入 2020 年代中期，解放軍已擁有多種部署戰區導彈的方式：<P>	
+•PLA Rocket Force: DF-26; DF-21A/C/D anti-ship ballistic missile (ASBM); DF-17 hypersonic glide vehicle (HGV); DF-16; DF-15; DF-11A; CJ-10 land attack cruise missile (LACM)
+<P>	解放軍火箭軍： DF-26；DF-21A/C/D 反艦彈道飛彈 (ASBM)；DF-17 高超音速滑翔載具 (HGV)；DF-16；DF-15；DF-11A；CJ-10 陸攻巡弋飛彈 (LACM)。<P>	
+•PLAAF: CJ-20 LACM; YJ-21 air-launched ballistic missile (ALBM); larger ALBMs
+<P>	解放軍空軍： CJ-20 陸攻巡弋飛彈；YJ-21 空射彈道飛彈 (ALBM)；以及更大規模的空射彈道飛彈。<P>	
+•PLAN: YJ-21 ASBM, with longer-range ASBMs on the way 
+<P>	解放軍海軍： YJ-21 反艦彈道飛彈，且更遠程的反艦彈道飛彈亦在研發中。<P>	
+•The PLAGF also began forming artillery brigades armed with the Norinco PHL-16, which could fire two 750 mm short-range ballistic missiles (SRBMs) or eight 370 mm missiles of SRBM range. Depending on the number of sorties for 6x LACM carrying H-6K/J/N bombers, the number of total theater missiles could range from 4,000 to 5,000 or more.【151】 
+<P>	陸軍亦開始組建配備北方工業 PHL-16 火砲系統的炮兵旅，該系統可發射兩枚 750 毫米短程彈道飛彈 (SRBM) 或八枚短程範圍的 370 毫米飛彈。根據 6 架搭載 H-6K/J/N 轟炸機進行巡弋飛彈任務的架次，戰區彈道飛彈的總數可能落在 4,000 至 5,000 枚或更多。<P>	
+
+ ### 解放軍海軍 (PLAN)
+Through the PLAN’s three fleets—four if it conquered Taiwan—the CCP could extend its power throughout Asia and then globally. It will be on its way to 550 ships by 2030,152 with plans for 10 PLAN aircraft carrier groups in the 2040s153 and the first completely nuclear-powered carrier, cruiser, and replenishment groups. Currently, PLAN nuclear submarine production has spiked, and these vessels can more effectively protect China’s force of 12 nuclear ballistic missile submarines (SSBNs) and prosecute those of the US Navy. It is building 25 large landing helicopter dock / landing platform dock (LHD/LPD) vessels to expand the PLAN’s power projection options. Chinese unmanned submarines, surface ships, and large combat aircraft are world-class.
+<P>	透過海軍的三支艦隊（若攻佔台灣則為四支），中共得以將其力量延伸至整個亞洲乃至全球。預計到 2030 年，其艦艇數量將達到 550 艘；並計劃在 2040 年代擁有 10 個航空母艦作戰群，以及首批完全核動力航母、巡洋艦與補給群。目前，海軍核潛艇的產量大幅激增，這些艦艇能更有效地保護中國現有的 12 艘核彈頭潛艇 (SSBN)，並對美國海軍構成威脅。此外，海軍正建造 25 艘大型兩棲突擊艦/兩棲船塢運輸艦 (LHD/LPD)，以擴展其戰力投射選項。中國的無人潛艇、水面艦艇與大型戰鬥飛機均已達世界級水準。<P>	
+
+ ### 解放軍空軍 (PLAAF)
+The PLAAF has 1,800 combat aircraft with about 900 fourth-generation fighters, 200 Chengdu J-20 fifth-generation fighters,【154】and an advanced sixth-generation fighter program.【155】 A world class unmanned combat aerial vehicle (UCAV) sector will soon be producing fighter/bomber-sized autonomous cooperative platforms (ACPs) using artificial intelligence. The H-20 flying wing strategic stealth bomber will soon join a force of 150 modernized H-6K/J/N bombers.【156】 A growing fleet of Y-20 heavy transports with aerial refueling tanker versions enables global power projection.
+<P>	空軍擁有 1,800 架戰鬥機，其中包括約 900 架第四代戰鬥機、200 架成都 J-20 第五代戰鬥機，以及先進的第六代戰鬥機研發計畫。一個世界級的無人戰鬥空中載具 (UCAV) 部門很快將利用人工智慧，生產戰鬥機/轟炸機規模的自主協同平台 (ACP)。H-20 飛翼戰略隱形轟炸機即將加入由 150 架現代化 H-6K/J/N 轟炸機組成的機隊。此外，日益壯大的 Y-20 重型運輸機機隊（含空中加油版本）使其具備全球戰力投射能力。<P>	
+
+### 人民武裝警察 (PAP)
+Since the reforms of 2018, the 660,000-strong PAP lost noncombat elements, and the CCP reorganized the police into three main elements: the Internal Security Corps, the Mobile Corps, and the China Coast Guard (CCG), of which it took control. The CCP also subordinated it to CMC control and increased its mechanization with wheeled armored vehicles to contribute to the occupation of Taiwan.【157】 The PAP may have 32 regional commands, each with one or more mobile units (contingents).【158】 Though a 2019 study mentions 25 mobile contingents (seven in Xinjiang)【159】 as its main force for assisting internal security missions, in coordination with the MPS and the PLA, and are available to support external PLA missions.
 <P>	自 2018 年改革以來，規模 66 萬人的武警失去了非戰鬥元素，中共將其改組為三大核心：內部安全部隊、機動部隊以及由中共直接掌控的中國海警局 (CCG)。中共亦將其歸於中央軍委管轄，並透過增加輪式裝甲車輛的機械化程度，以協助對台作戰。武警可能設有 32 個地區指揮部，每個指揮部配備一個或多個機動部隊。雖然 2019 年的一項研究提到，其擁有 25 個機動部隊（其中 7 個在新疆）作為協助內部安全任務的主力（與公安部及解放軍協同），並可支援解放軍的外部任務。
+The 1.9 million-strong【160】 MPS controls internal security and local police forces, conducts domestic and foreign espionage, and manages the network of detention and reeducation camps that imprison 1 to 2 million Uyghurs in Xinjiang. It is this concentration camp infrastructure that the Chinese government could also use to “process” conquered populations from Hong Kong, Taiwan, the Ryukyus, Arunachal Pradesh, and other future conquests.
 <P>	規模 190 萬人的公安部 (MPS) 控制著內部安全與地方警察力量，負責進行國內外間諜活動，並管理著新疆內囚禁 100 萬至 200 萬維吾爾人的拘留與再教育營網絡。中國政府亦可能利用這種集中營基礎設施，來「處理」從香港、台灣、琉球、阿魯納恰爾邦及其他未來征服地區獲得的人口。
+The CCP also placed the coast guard under the PAP in 2018. The CCG is credited with over 520 ships, but 300 are small non-ocean capable patrol boats.【161】 Nevertheless, it is a major factor in gray-zone intimidation and political warfare operations against Japan, South Korea, the Philippines, and other Southeast Asian nations. The CCG will assist the PLAN in wartime. It has two of the world’s largest coast guard cutters, the 12,000 ton Zhaotao class and the 1,800-ton Type-056 armed corvette from the PLAN, of which it received 22 in 2021.【162】
 <P>	中共於 2018 年將海警歸於武警管轄。海警據稱擁有超過 520 艘艦艇，但其中 300 艘為不具遠洋能力的輕型巡邏艇。儘管如此，海警仍是針對日本、韓國、菲律賓及其他東南亞國家進行「灰色地帶」威嚇與政治戰的重要力量。海警在戰時將協助海軍。海警擁有兩款世界級的大型巡邏艦：12,000 噸級的「昭陶」級，以及從海軍接收的 1,800 噸級 056 型護衛艦（2021 年已接收 22 艘）。
 
- ## 人民武裝力量民兵
+ ## 人民武裝力量民兵（People’s Militia）
+While a 2018 PLA Daily article credited the Militia of China with having 8 million personnel, the article did not say this also accounted for the People’s Armed Forces Maritime Militia and an Air Militia that can access China’s 4,000 civilian airliners. Under the control of theater commands, ground force Militia are “responsible for combat readiness, defensive operations, and assisting in maintaining social order . . . actively participate in anti-terrorism and stability maintenance, emergency rescue and disaster relief, and border protection and border control.”【163】 
 <P>	雖然 2018 年《解放軍報》一篇報導稱中國民兵擁有 800 萬成員，但該文並未說明這也包含了「人民武裝力量海上民兵」以及能動用中國 4,000 架民航客機的「空軍民兵」。在戰區司令部的控制下，陸軍民兵「負責戰備、防禦作戰及協助維持社會秩序……積極參與反恐、維穩、應急救援、防汛救災以及邊境保衛與管控」。
-<P>	海上民兵包含全職部隊，參與灰色地帶威嚇行動，並能動用數以千計的民用大型滾裝船 (Ro-Ro)、大型汽車運輸船及大型滾裝河用駁船，以大幅擴展兩棲登陸作戰能力。他們還能控制中國大部分的大型漁船隊。此外，民兵化的結構使解放軍能夠動員中國航空公司內的 4,000 架波音與空中巴士飛機，以支援機動演習與運輸入侵部隊。
-<P>	確保中共垮台後的政權安全
-<P>	在中共未來垮台後，解放軍、武警與民兵機構需要進行重組，以便確保新政府能夠有效拆解中共龐大的控制與壓迫體制。新政權亦需建立新的外交與國防優先事項，以扭轉中共與鄰國及民主國家之間日益惡化的衝突。這些改變將能從根本上削減中共為了爭奪全球霸權所進行的軍事擴張。
-<P>	如前所述，美國、日本及其他盟友民主國家可組成一個規模相當於師級（約 1 萬人）的「重建軍」，由具備各專業背景的華語專家組成，為新政府提供建議。該團隊將蒐集關鍵情報以預警政變陰謀、監測可能引發動亂的重大經濟或政治問題，並協助識別與審核具備能力且忠誠的未來官員。此團隊亦能幫助許多曾在舊政權任職的政府官員理解透明度的價值，並徹底改變其觀念。
-<P>	如此艱鉅的任務需要提供誘因，例如在中國、台灣、日本、美國及其他國家進行培訓。這將促進對民主改革與專業官僚體制的理解，同時裝備軍隊，使其能在脫離中共控制的情況下正常運作。對於那 1 億名希望協助建立新、自由中國的前中共安全機構成員而言，這種教育與培訓將提供正向的選擇。此外，暫時協助支付薪資與退休金，並為數百萬黨政軍成員制定過渡方案，也是能將損失降至最低並防止對新政府反叛的選項。
-<P>	這需要多少成本？由於解放軍缺乏透明度，估算其預算一直是一門不準確的科學。戰略與國際研究中心 (CSIS) 的研究發現，人事費用約佔解放軍預算的 30%，儘管 2018 年的改革使軍人薪資增加了 40%。但若以 2023 年「官方」預算 2,240 億美元計算，30% 即為 672 億美元。考慮到估計實際預算可能是官方數字的兩倍，僅為了平息軍事叛亂而籌集 600 億或 1,200 億美元的援助，將是一個巨大的挑戰。
-<P>	誠然，在中共垮台後的初期，削減採購與訓練預算可以立即支應薪資延續與過渡方案。但失業的工廠工人也需要支持，且許多其他領域也會競爭這些剩餘的國防基金。至於外國援助，或許可以考慮針對對新政府穩定至關重要的地區提供較小規模的援助方案，但若要使此選項具吸引力，民主國家的領導人必須看到其效益。
-<P>	確保介入權以影響新外交與軍事目標的制定
-<P>	後中共政府需要大幅縮減原政權龐大的「解放軍-武警-國營企業」生產與研究複合體。若要說服其進行縮減（同樣假設其具有多元化改革傾向），則需要說服其放棄支撐該複合體建立的獨裁政體與外交目標。
-<P>	同時，應制定計畫以避免強化「百年國恥」這種敘事，以免被反改革派利用。美國、日本及其他民主國家的目標並非消滅強大的中國，而是協助結束獨裁政權的種種惡行。此外，其目標是幫助中國人民實現政治與經濟自由的益處，並讓他們看到：國家的力量源於尊重與支持普世價值，而非源於破壞這些價值。
-<P>	隨著中國公民開始意識到國家實力可能下降，支持性的國家需向他們展示中共追求霸權所帶來的悲劇、浪費與機會成本。他們需要看到，一個負責任的中國若停止糾纏亞洲及其他地區，將會日益受到歡迎並擁有更多機會。同樣地，若重建軍能獲得新政府的信任與接觸權，將會有所幫助。具體而言，盟友民主國家應說服新中國政府：
-<P>	譴責中共基於破壞民主國家、與俄羅斯及北韓獨裁政權結盟而追求霸權的行為，首先應與台灣簽署和平協議，放棄對台使用武力並尊重其主權。
-<P>	放棄中共追求核優勢的目標，轉而追求由中、俄、美三方共同同意、且飛彈防禦系統可以中和的同等核彈頭數量協議。
-<P>	放棄中共對所有鄰國的侵略性領土主張，轉而尋求在可行情況下進行公平解決與共同經濟發展。
-<P>	停止中共多年來向北韓、巴基斯坦與伊朗進行的飛彈與核擴散行為。
-<P>	停止支持北韓、巴基斯坦與伊朗的獨裁或軍事威權政權，轉而支持當地的民主改革運動。
-<P>	停止試圖建立遏制民主國家的區域與全球權力結構；民主國家願意進行談判、合作、妥協，並歡迎一個不尋求破壞或主宰它們的中國加入領導理事會。
-<P>	結束中共的網路戰（包括基礎設施攻擊、軍事與民用間諜活動、以及資訊操縱），轉而遵循捍衛中國與民主國家安全及財產權的網路原則。
-<P>	結束中共對太空霸權的追求，轉而於極端環境中相互支持，並透過合作來推進科學發現、成就與企業利潤。
-<P>	擁有介入新中國政府決策過程的機會，不僅是推動上述原則的機會，也是一個說服新政府的機會：即中國在歷史上並未、且未來也不太可能面臨來自民主國家的生存威脅。一個流氓化的俄羅斯、北韓、巴基斯坦或伊朗（後三者掌握中國核武技術）確實可能構成威脅。但對中國而言，好處在於美國、日本及大多數民主國家很可能會協助中國遏制或擊敗此類威脅，或至少協助重建工作。
-<P>	確保中共垮台後的政權安全
-<P>	在中共未來垮台後，解放軍、武警及民兵機構需要進行重組，以便確保新政府能夠有效拆解中共龐大的控制與壓迫體制。新政權亦需建立新的外交與國防優先事項，以扭轉中共與鄰國及民主國家之間日益惡化的衝突。這些改變將能從根本上削減中共為了爭奪全球霸權所進行的軍事擴張。
-<P>	如前所述，美國、日本及其他盟友民主國家可組成一個規模相當於師級（約 1 萬人）的「重建軍」，由具備各專業背景的華語專家組成，為新政府提供建議。該團隊將蒐集關鍵情報以預警政變陰謀、監測可能引發動亂的重大經濟或政治問題，並協助識別與審核具備能力且忠誠的未來官員。此團隊亦能幫助許多曾在舊政權任職的政府官員理解透明度的價值，並徹底改變其觀念。
-<P>	如此艱鉅的任務需要提供誘因，例如在中國、台灣、日本、美國及其他國家進行培訓。這將促進對民主改革與專業官僚體制的理解，同時裝備軍隊，使其能在脫離中共控制的情況下正常運作。對於那 1 億名希望協助建立新、自由中國的前中共安全機構成員而言，這種教育與培訓將提供正向的選擇。此外，暫時協助支付薪資與退休金，並為數百萬黨政軍成員制定過渡方案，也是能將損失降至最低並防止對新政府反叛的選項。
-<P>	這需要多少成本？由於解放軍缺乏透明度，估算其預算一直是一門不準確的科學。戰略與國際研究中心 (CSIS) 的研究發現，人事費用約佔解放軍預算的 30%，儘管 2018 年的改革使軍人薪資增加了 40%。但若以 2023 年「官方」預算 2,240 億美元計算，30% 即為 672 億美元。考慮到估計實際預算可能是官方數字的兩倍，僅為了平息軍事叛亂而籌集 600 億或 1,200 億美元的援助，將是一個巨大的挑戰。
-<P>	誠然，在中共垮台後的初期，削減採購與訓練預算可以立即支應薪資延續與過渡方案。但失業的工廠工人也需要支持，且許多其他領域也會競爭這些剩餘的國防基金。至於外國援助，或許可以考慮針對對新政府穩定至關重要的地區提供較小規模的援助方案，但若要使此選項具吸引力，民主國家的領導人必須看到其效益。
-<P>	確保介入權以影響新外交與軍事目標的制定
-<P>	後中共政府需要大幅縮減原政權龐大的「解放軍-武警-國營企業」生產與研究複合體。若要說服其進行縮減（同樣假設其具有多元化改革傾向），則需要說服其放棄支撐該複合體建立的獨裁政體與外交目標。
-<P>	同時，應制定計畫以避免強化「百年國恥」這種敘事，以免被反改革派利用。美國、日本及其他民主國家的目標並非消滅強大的中國，而是協助結束獨裁政權的種種惡行。此外，其目標是幫助中國人民實現政治與經濟自由的益處，並讓他們看到：國家的力量源於尊重與支持普世價值，而非源於破壞這些價值。
-<P>	隨著中國公民開始意識到國家實力可能下降，支持性的國家需向他們展示中共追求霸權所帶來的悲劇、浪費與機會成本。他們需要看到，一個負責任的中國若停止糾纏亞洲及其他地區，將會日益受到歡迎並擁有更多機會。同樣地，若重建軍能獲得新政府的信任與接觸權，將會有所幫助。具體而言，盟友民主國家應說服新中國政府：
-<P>	譴責中共基於破壞民主國家、與俄羅斯及北韓獨裁政權結盟而追求霸權的行為，首先應與台灣簽署和平協議，放棄對台使用武力並尊重其主權。
-<P>	放棄中共追求核優勢的目標，轉而追求由中、俄、美三方共同同意、且飛彈防禦系統可以中和的同等核彈頭數量協議。
-<P>	放棄中共對所有鄰國的侵略性領土主張，轉而尋求在可行情況下進行公平解決與共同經濟發展。
-<P>	停止中共多年來向北韓、巴基斯坦與伊朗進行的飛彈與核擴散行為。
-<P>	停止支持北韓、巴基斯坦與伊朗的獨裁或軍事威權政權，轉而支持當地的民主改革運動。
-<P>	停止試圖建立遏制民主國家的區域與全球權力結構；民主國家願意進行談判、合作、妥協，並歡迎一個不尋求破壞或主宰它們的中國加入領導理事會。
-<P>	結束中共的網路戰（包括基礎設施攻擊、軍事與民用間諜活動、以及資訊操縱），轉而遵循捍衛中國與民主國家安全及財產權的網路原則。
-<P>	結束中共對太空霸權的追求，轉而於極端環境中相互支持，並透過合作來推進科學發現、成就與企業利潤。
-<P>	擁有介入新中國政府決策過程的機會，不僅是推動上述原則的機會，也是一個說服新政府的機會：即中國在歷史上並未、且未來也不太可能面臨來自民主國家的生存威脅。一個流氓化的俄羅斯、北韓、巴基斯坦或伊朗（後三者掌握中國核武技術）確實可能構成威脅。但對中國而言，好處在於美國、日本及大多數民主國家很可能會協助中國遏制或擊敗此類威脅，或至少協助重建工作。
+The Maritime Militia includes full-time forces that participate in gray-zone intimidation operations but can access scores of civilian large roll-on/roll-off (Ro-Ro) ferries and large car carriers as well as thousands of large Ro-Ro river barges to greatly expand amphibious assault operations. They can also control much of China’s large fishing fleet.164 Furthermore, a Militia-like structure enables the PLA to mobilize the 4,000 Boeing and Airbus planes in China’s airlines to support mobility exercises and transport invasion troops.
+<P>	海上民兵包含全職部隊，參與灰色地帶威嚇行動，並能動用數以千計的民用大型滾裝船 (Ro-Ro)、大型汽車運輸船及大型滾裝河用駁船，以大幅擴展兩棲登陸作戰能力。他們還能控制中國大部分的大型漁船隊。此外，民兵化的結構使解放軍能夠動員中國航空公司內的 4,000 架波音與空中巴士飛機，以支援機動演習與運輸入侵部隊。<P>	
 
- ## 解放軍、武警與民兵的重組與專業化
-<P>	若盟友民主國家成功協助新中國政府將中共的獨裁架構替換為民主改革議程，政府將更容易採納上述新的外交與國防政策目標。隨之而來，政府也將更易於推動軍隊專業化並大幅縮減軍力。
-<P>	中共的垮台與預期中的民主改革政府繼承權，將提供一個機會，建立一個服從於基於法治而非中共專斷統治的民主政府結構的軍事組織。在此過程中，美國、日本與台灣擁有正向的民主軍事改革經驗，可以將其轉化並提供給新中國，以補充其軍事專業化的議程，並提供更深度的海外留學機會。
-<P>	中共的終結也提供了超越以往令人沮喪、單方面且具操縱性的軍事交流模式之機會。過去的交流往往有利於解放軍的目標。未來的軍事信任建立應建立在平等接觸、可接受的透明度，以及致力於解決問題的承諾之上，而非使用傳統的中國策略來延續而非解決衝突。
+## Securing the Post-CCP Government/確保中共垮台後的政權安全
+Immediately after a future collapse of the CCP, the PLA, PAP, and Militia organs will need to restructure so that they can secure a new government committed to dismantling the vastCCP control and suppression regime. The new regime will also need to establish foreign and defense priorities that reverse the CCP’s growing conflicts with its neighbors and the democracies. These changes would allow for radical reductions from the CCP’s military preparations for global superiority.
+<P>	在中共未來垮台後，解放軍、武警及民兵機構需要進行重組，以便確保新政府能夠有效拆解中共龐大的控制與壓迫體制。新政權亦需建立新的外交與國防優先事項，以扭轉中共與鄰國及民主國家之間日益惡化的衝突。這些改變將能從根本上削減中共為了爭奪全球霸權所進行的軍事擴張。<P>	
+As mentioned earlier, the United States, Japan, and other allied democracies could create a division-size (10,000 members) reconstruction corps of Mandarin-speaking experts from varied professions to advise the new government. The group would also gather vital intelligence to warn of coup plots, monitor major economic or political issues that could cause revolts, and help identify and vet capable and loyal future officials. This group could also help government officials, many of whom would have served in the previous regime, appreciate the value of transparency, and it could completely change their outlook.
+<P>	如前所述，美國、日本及其他盟友民主國家可組成一個規模相當於師級（約 1 萬人）的「重建軍」，由具備各專業背景的華語專家組成，為新政府提供建議。該團隊將蒐集關鍵情報以預警政變陰謀、監測可能引發動亂的重大經濟或政治問題，並協助識別與審核具備能力且忠誠的未來官員。此團隊亦能幫助許多曾在舊政權任職的政府官員理解透明度的價值，並徹底改變其觀念。<P>	
+Such a tall task would require inducements such as training in China, Taiwan, Japan, the United States, and other countries. This would promote an understanding of democratic reform and a professional bureaucracy while also equipping the military to function without CCP control. Such education and training would create positive options for some of the 100 million former members of the CCP’s security organs who would want to help build a new and free China. Temporarily helping to pay salaries and pensions and creating transition packages for millions of party and military members are other options that could minimize privation and prevent revolts against the new government.
+<P>	如此艱鉅的任務需要提供誘因，例如在中國、台灣、日本、美國及其他國家進行培訓。這將促進對民主改革與專業官僚體制的理解，同時裝備軍隊，使其能在脫離中共控制的情況下正常運作。對於那 1 億名希望協助建立新、自由中國的前中共安全機構成員而言，這種教育與培訓將提供正向的選擇。此外，暫時協助支付薪資與退休金，並為數百萬黨政軍成員制定過渡方案，也是能將損失降至最低並防止對新政府反叛的選項。<P>	
+How much would this cost? Estimating PLA budgets has been a long-standing inexact science due to the PLA’s lack of transparency.【165】 A Center for Strategic and International Studies study finds that personnel constituted about 30 percent of the PLA budget,【166】 though 2018 reforms saw a 40 percent increase in PLA salaries. But 30 percent of the 2023 “official” PLA budget of $224 billion is $67.2 billion. Considering estimates that the real PLA budget is double the official one,【167】 gathering $60 billion or $120 billion in aid just to quell military revolts would be an enormous challenge.
+<P>	這需要多少成本？由於解放軍缺乏透明度，估算其預算一直是一門不準確的科學。戰略與國際研究中心 (CSIS) 的研究發現，人事費用約佔解放軍預算的 30%，儘管 2018 年的改革使軍人薪資增加了 40%。但若以 2023 年「官方」預算 2,240 億美元計算，30% 即為 672 億美元。考慮到估計實際預算可能是官方數字的兩倍，僅為了平息軍事叛亂而籌集 600 億或 1,200 億美元的援助，將是一個巨大的挑戰。<P>	
+To be sure, in the early years after a CCP collapse, cuts from procurement and training could immediately fund salary extensions and transition packages. But unemployed factory workers would also require support, and many other sectors will be competing for the excess defense funds. As for foreign assistance, it may be possible to consider smaller aid packages by targeting regions key to the new government’s stability, but for such an option to be appealing, democratic leaders will have to see the benefits.
+<P>	誠然，在中共垮台後的初期，削減採購與訓練預算可以立即支應薪資延續與過渡方案。但失業的工廠工人也需要支持，且許多其他領域也會競爭這些剩餘的國防基金。至於外國援助，或許可以考慮針對對新政府穩定至關重要的地區提供較小規模的援助方案，但若要使此選項具吸引力，民主國家的領導人必須看到其效益。<P>	
+
+## Securing Access to Influence the Creation of New Foreign and Military Objectives/確保介入權以影響新外交與軍事目標的制定	
+The post-CCP government will need to radically reduce the size of the former regime’s broad PLA-PAP-corporate production and research complex. Convincing it to do so, again presuming it has a pluralistic reform tendency, will also require convincing it to abandon the dictatorship and foreign goals that justified building up that complex to begin with.
+<P>	後中共政府需要大幅縮減原政權龐大的「解放軍-武警-國營企業」生產與研究複合體。若要說服其進行縮減（同樣假設其具有多元化改革傾向），則需要說服其放棄支撐該複合體建立的獨裁政體與外交目標。<P>	
+At the same time, there should be a plan to avoid adding to the “centuries of humiliation” trope that anti-reform factions will exploit. The goal of the United States, Japan, and other democracies is not to slay a powerful China but to help end a dictatorship’s myriad evils. In addition, they aim to help the Chinese people realize the benefits of political and economic freedom and see their nation derive power from respecting and supporting universal principles, not from supporting their destruction.
+<P>	同時，應制定計畫以避免強化「百年國恥」這種敘事，以免被反改革派利用。美國、日本及其他民主國家的目標並非消滅強大的中國，而是協助結束獨裁政權的種種惡行。此外，其目標是幫助中國人民實現政治與經濟自由的益處，並讓他們看到：國家的力量源於尊重與支持普世價值，而非源於破壞這些價值。<P>	
+As Chinese citizens begin seeing their country become much less powerful, supportive countries will need to show them the tragedy, waste, and opportunity cost of the CCP’s drive toward hegemony. They need to see how a responsible China will be increasingly welcomed and have greater opportunities if it ceases to embroil Asia and other regions. Again, a reconstruction corps that has achieved access to and the confidence of the new government could help. Specifically, the allied democracies should convince the new Chinese government to:
+<P>	隨著中國公民開始意識到國家實力可能下降，支持性的國家需向他們展示中共追求霸權所帶來的悲劇、浪費與機會成本。他們需要看到，一個負責任的中國若停止糾纏亞洲及其他地區，將會日益受到歡迎並擁有更多機會。同樣地，若重建軍能獲得新政府的信任與接觸權，將會有所幫助。具體而言，盟友民主國家應說服新中國政府：<P>	
+1. Denounce the CCP’s drive for hegemony based on destroying democracies, in alliance with the Russian and North Korean dictatorships, starting with a peace agreement with Taiwan that renounces the use of force against the island and respects its sovereignty.
+<P>	譴責中共基於破壞民主國家、與俄羅斯及北韓獨裁政權結盟而追求霸權的行為，首先應與台灣簽署和平協議，放棄對台使用武力並尊重其主權。<P>	
+2. Abandon the CCP’s goal of nuclear superiority in favor of pursuing an agreement on an equal number of nuclear war heads that China, Russia, and the United States will jointly agree upon and that missile defenses can neutralize.
+<P>	放棄中共追求核優勢的目標，轉而追求由中、俄、美三方共同同意、且飛彈防禦系統可以中和的同等核彈頭數量協議。<P>	
+3. Abandon the CCP’s aggressive territorial claims against all its neighbors in favor of, where feasible, fair settlement and joint economic developments.
+<P>	放棄中共對所有鄰國的侵略性領土主張，轉而尋求在可行情況下進行公平解決與共同經濟發展。<P>	
+4. Halt the CCP’s years of missile and nuclear proliferation to North Korea, Pakistan, and Iran.
+<P>	停止中共多年來向北韓、巴基斯坦與伊朗進行的飛彈與核擴散行為。<P>	
+5. Cease supporting dictatorships or military-authoritarian regimes in North Korea, Pakistan, and Iran in favor of supporting democratic reform movements there.
+<P>	停止支持北韓、巴基斯坦與伊朗的獨裁或軍事威權政權，轉而支持當地的民主改革運動。<P>	
+6. Stop trying to create regional and global power structures to contain the democracies, which are willing to bargain, cooperate, compromise, and welcome into leadership councils a China that is not seeking to destroy or dominate them. 
+<P>	停止試圖建立遏制民主國家的區域與全球權力結構；民主國家願意進行談判、合作、妥協，並歡迎一個不尋求破壞或主宰它們的中國加入領導理事會。<P>	
+7. End the CCP’s cyber war, a war of infrastructure attack, military and civil espionage, and information manipulation, in favor of cyber principles that defend the security and property rights of China and the democracies. 
+<P>	結束中共的網路戰（包括基礎設施攻擊、軍事與民用間諜活動、以及資訊操縱），轉而遵循捍衛中國與民主國家安全及財產權的網路原則。<P>	
+End the CCP’s quest for space hegemony in favor of mutual support in a very harsh environment and cooperation to advance scientific discovery and achievement as well as corporate profits.
+<P>	結束中共對太空霸權的追求，轉而於極端環境中相互支持，並透過合作來推進科學發現、成就與企業利潤。<P>	
+But the opportunity to have deep access to the new Chinese government’s decision-making process and to advance the above principles is also an opportunity to convince the new government that China historically has not and likely will not face an existential threat from the democracies. A rogue Russia, North Korea, Pakistan, or Iran, the latter three with Chinese nuclear missile technology, could in fact pose threats. But the benefit for China is that the United States, Japan, and most of the other democracies would likely help China to contain or defeat such threats, or would at least help with reconstruction.
+<P>	擁有介入新中國政府決策過程的機會，不僅是推動上述原則的機會，也是一個說服新政府的機會：即中國在歷史上並未、且未來也不太可能面臨來自民主國家的生存威脅。一個流氓化的俄羅斯、北韓、巴基斯坦或伊朗（後三者掌握中國核武技術）確實可能構成威脅。但對中國而言，好處在於美國、日本及大多數民主國家很可能會協助中國遏制或擊敗此類威脅，或至少協助重建工作。<P>	
+
+## Restructuring and Professionalizing the PLA, PAP, and Militia/解放軍、武警與民兵的重組與專業化
+If the allied democracies succeed in helping the new Chinese government replace the CCP dictatorship architecture with an agenda of democratic reform, the government will more easily adopt the above list of new foreign and defense policy goals. In turn, it will also more readily professionalize the military and radically reduce its forces.
+<P>	若盟友民主國家成功協助新中國政府將中共的獨裁架構替換為民主改革議程，政府將更容易採納上述新的外交與國防政策目標。隨之而來，政府也將更易於推動軍隊專業化並大幅縮減軍力。<P>	
+The fall of the CCP and the expected succession of a democratic reform government will provide an opportunity to create military organizations subordinate to a democratic government structure founded on the rule of law, not the arbitrary rule of the CCP. In this pursuit, the United States, Japan, and Taiwan have positive democratic military reform experiences that they can package, translate, and offer to supplement a new Chinese agenda for military professionalization. They can also offer deeper study abroad opportunities.
+<P>	中共的垮台與預期中的民主改革政府繼承權，將提供一個機會，建立一個服從於基於法治而非中共專斷統治的民主政府結構的軍事組織。在此過程中，美國、日本與台灣擁有正向的民主軍事改革經驗，可以將其轉化並提供給新中國，以補充其軍事專業化的議程，並提供更深度的海外留學機會。<P>	
+The end of the CCP also provides the opportunity to move beyond the frustrating one-sided, manipulative military-to-military engagement regime that usually favored the PLA’s goals. Military confidence-building should have a foundation of equal access, equal degrees of acceptable transparency, and a commitment to solutions instead of historic Chinese stratagems intended to extend, not solve, conflicts.
+<P>	中共的終結也提供了超越以往令人沮喪、單方面且具操縱性的軍事交流模式之機會。過去的交流往往有利於解放軍的目標。未來的軍事信任建立應建立在平等接觸、可接受的透明度，以及致力於解決問題的承諾之上，而非使用傳統的中國策略來延續而非解決衝突。<P>	
 
  ### 未來部隊結構
-<P>	總體而言，初步目標可能是將原中共的國家安全結構減半。一個放棄鄰國侵略與海外霸權的中國，可能需要更小的軍事部門，但經濟成本、經濟成長與政治穩定將決定縮減的速度。儘管如此，特別是在達成政治與經濟穩定之後，民主的中國政府仍需擁有一支能保護正當國家安全利益、實現與他國合作以促進國際安全目標，並提升國家聲望的軍隊。
-<P>	然而，常規武力的縮減需要策略性的核穩定。在此方面，大幅縮減可能並不合適，至少在初期是如此。由於從未達成過三方談判的核穩定，最初可能需要較數量的核彈頭以提供保證，隨後各方才可在建立信任的基礎上尋求縮減。正如美國與俄羅斯在 2010 年認為 1,550 枚彈頭足以達成《新削減戰略武器條約》(New START)，兩倍的數量可能為各方提供威懾第三方的保證。然而，這些核飛彈力量應能透過充足的國家飛彈防禦系統來中和——這正是隆納·雷根（Ronald Reagan）的目標。
+In general, halving the former CCP’s national security structure may be the best goal at first. A China that abandons aggression in its neighborhood and hegemony beyond may require an even smaller military sector, but economic cost, economic growth, and political stability will likely determine the rate of reduction. Nevertheless, especially after achieving political and economic stability, a democratic Chinese government will require a military that protects justifiable national security interests, enables cooperation with other states to promote international security goals, and promotes national prestige.
+<P>	總體而言，初步目標可能是將原中共的國家安全結構減半。一個放棄鄰國侵略與海外霸權的中國，可能需要更小的軍事部門，但經濟成本、經濟成長與政治穩定將決定縮減的速度。儘管如此，特別是在達成政治與經濟穩定之後，民主的中國政府仍需擁有一支能保護正當國家安全利益、實現與他國合作以促進國際安全目標，並提升國家聲望的軍隊。<P>	
+Conventional force reductions, however, will require strategic nuclear stability. Here, sharp reductions may not be appropriate, at least early on. As there has never been a negotiated three-way nuclear stability, assurance may require a larger number of nuclear warheads initially, and the parties may then seek reductions with accumulated confidence. As the United States and Russia deemed 1,550 warheads sufficient to agree to New Start in 2010, double that number may provide assurance for each to deter the two others. However, these nuclear missile forces should be neutralizable by sufficient national missile defense systems—Ronald Reagan’s goal.
+<P>	然而，常規武力的縮減需要策略性的核穩定。在此方面，大幅縮減可能並不合適，至少在初期是如此。由於從未達成過三方談判的核穩定，最初可能需要較數量的核彈頭以提供保證，隨後各方才可在建立信任的基礎上尋求縮減。正如美國與俄羅斯在 2010 年認為 1,550 枚彈頭足以達成《新削減戰略武器條約》(New START)，兩倍的數量可能為各方提供威懾第三方的保證。然而，這些核飛彈力量應能透過充足的國家飛彈防禦系統來中和——這正是隆納·雷根（Ronald Reagan）的目標。<P>	
 
 ### 陸軍
-<P>	擁有 13 個集團軍的解放軍——配備重型、中型與輕型旅的機械化部隊、整合火砲、日益增加的飛彈火砲、防空砲兵、地對空飛彈系統，以及不斷成長的陸軍航空兵——並非防禦性力量，而是進攻性力量。這些部隊連同兩個兩棲集團軍師、八個海軍陸戰旅與七個空降旅，皆是為了進攻性作戰而設計。
-<P>	建議新中國政府採取防禦姿態，可從五或六個集團軍，以及一半的兩棲、海軍陸戰與空降單位開始，並分布於五大戰區。解放軍擁有充足的鐵路、空降與公路機動能力，足以針對大規模威脅集結兵力，或協助聯合穩定任務。
+A PLA of 13 group armies—mechanized with heavy, medium, and light brigades, integral artillery, increasing missile artillery, anti-aircraft artillery, surface-to-air missile systems, and a growing PLA Army Aviation Corps—is not a defensive force but an offensive one. These along with two amphibious army divisions, eight marine brigades, and seven airborne brigades are for offensive operations.
+<P>	擁有 13 個集團軍的解放軍——配備重型、中型與輕型旅的機械化部隊、整合火砲、日益增加的飛彈火砲、防空砲兵、地對空飛彈系統，以及不斷成長的陸軍航空兵——並非防禦性力量，而是進攻性力量。這些部隊連同兩個兩棲集團軍師、八個海軍陸戰旅與七個空降旅，皆是為了進攻性作戰而設計。<P>	
+It is reasonable to suggest to a new Chinese government that a defensive posture would start with five or six group armies and half the amphibious army, marine, and airborne units, spread among the five theater commands. The PLA has sufficient rail, airborne, and road mobility to mass forces against a large threat or to assist coalition stability missions.
+<P>	建議新中國政府採取防禦姿態，可從五或六個集團軍，以及一半的兩棲、海軍陸戰與空降單位開始，並分布於五大戰區。解放軍擁有充足的鐵路、空降與公路機動能力，足以針對大規模威脅集結兵力，或協助聯合穩定任務。<P>	
 
  ### 海軍
-<P>	民主中國仍將擁有需要海軍捍衛與推進的全球利益。但中共意圖建立超過 500 艘艦艇的海軍，不僅是為了防禦，更是為了領土侵略與霸權。若能透過參與維和與穩定聯合演習來建立海軍信心，或許能緩解中國對海軍力量的需求，但這種轉變對盟友而言也可能產生同樣的效果。中國可能仍偏好以航空母艦、大型兩棲艦與核潛艇為核心的三支艦隊，但美中兩國最終可能達成共識，將海軍規模維持在 250 艘大型艦艇左右。
+A democratic China will continue to have global interests that a navy will defend and advance. But the CCP intends to build a PLA Navy of more than 500 ships not just for defense but for territorial aggression and hegemony. Deriving naval confidence from a number of peacekeeping and stability coalition exercises may ease China’s demand for naval power, but this change may do the same for the allies. China may still prefer three fleets based on carrier aviation, large amphibious ships, and nuclear submarines, but the US and China may settle on navies in the 250-large ship range.
+<P>	民主中國仍將擁有需要海軍捍衛與推進的全球利益。但中共意圖建立超過 500 艘艦艇的海軍，不僅是為了防禦，更是為了領土侵略與霸權。若能透過參與維和與穩定聯合演習來建立海軍信心，或許能緩解中國對海軍力量的需求，但這種轉變對盟友而言也可能產生同樣的效果。中國可能仍偏好以航空母艦、大型兩棲艦與核潛艇為核心的三支艦隊，但美中兩國最終可能達成共識，將海軍規模維持在 250 艘大型艦艇左右。<P>	
 
  ### 空軍
-<P>	若中國政府不再試圖實現全球霸權，其空軍規模可以縮小。它可能由第五代與第六代戰鬥機組成，並由大型自主協同平台 (ACP)、轟炸機部隊、卓越的人機/無人電子支援平台，以及強大的大型運輸機與空中加油機隊所支援。
+If the Chinese government is no longer trying to achieve global hegemonic power, the Chinese air force can be smaller. It will likely consist of fifth- and sixth-generation fighters supported by large ACPs, a bomber force, impressive manned and unmanned electronic support platforms, and an impressive large transport and aerial refueling tanker force.
+<P>	若中國政府不再試圖實現全球霸權，其空軍規模可以縮小。它可能由第五代與第六代戰鬥機組成，並由大型自主協同平台 (ACP)、轟炸機部隊、卓越的人機/無人電子支援平台，以及強大的大型運輸機與空中加油機隊所支援。<P>	
 
  ### 武警、公安與民兵
-<P>	隨著中共垮台，政府的內部安全任務將顯著縮小，對國內間諜、鎮壓與監視任務的需求也會降低。廢除武警與公安部的鎮壓設施及集中營也是可能的。然而，將武警、公安與民兵的部分元素重新組建為應急與災難救援組織是合理的。此外，也需要一支規模較小的海警，但用於騷擾或入侵任務的大規模海上民兵將是不具正當性的。
+With the fall of the CCP, the government will have a significantly smaller internal security mission and have less need for domestic espionage, repression, and surveillance missions. Eliminating the PAP and the MPS’s suppression and concentration camps will also be possible. But reassembling some elements of the PAP, MPS, and Militia into an emergency and disaster relief organization is justifiable. A smaller coast guard will also be necessary, but a massive maritime militia for missions of harassment or invasion will be unjustifiable.
+<P>	隨著中共垮台，政府的內部安全任務將顯著縮小，對國內間諜、鎮壓與監視任務的需求也會降低。廢除武警與公安部的鎮壓設施及集中營也是可能的。然而，將武警、公安與民兵的部分元素重新組建為應急與災難救援組織是合理的。此外，也需要一支規模較小的海警，但用於騷擾或入侵任務的大規模海上民兵將是不具正當性的。<P>	
 
  ## 太空合作的優勢與風險
-<P>	如同對待蘇聯解體後的俄羅斯，後中共時代的中國與西方國家之間的太空合作，可能在短期內帶來政治利益，並在長期內帶來經濟效益。然而，隨著中國在地球上的行為轉向正面，且各方透過談判協議約束太空中的軍事競爭，各國必須學會管理這種合作所帶來的風險。
+As it did for the post-CPSU Russia, space cooperation between a post-CCP China and the West could offer near-term political and long-term economic benefits. But the countries will need to manage the risks of such cooperation as China’s behavior on Earth moves in a positive direction and as negotiated agreements restrain military competition in space. 
+<P>	如同對待蘇聯解體後的俄羅斯，後中共時代的中國與西方國家之間的太空合作，可能在短期內帶來政治利益，並在長期內帶來經濟效益。然而，隨著中國在地球上的行為轉向正面，且各方透過談判協議約束太空中的軍事競爭，各國必須學會管理這種合作所帶來的風險。<P>	
+Yet the CCP’s fall will lessen tensions in the space domain. Beginning in 1992 with its 921 Program to control the moon along with many military space programs, the CCP sought to gain space combat superiority and then to achieve dominance over the Earth-moon system to better enforce its hegemonic ambitions on Earth.
 <P>	事實上，中共的垮台將減輕太空領域的緊張局勢。中共自 1992 年啟動「921 計畫」（旨在控制月球）以及多項軍事太空計畫以來，一直試圖取得太空戰鬥優勢，進而達成對地月系統的支配權，以更好地執行其在地球上的霸權野心。
-<P>	後中共時代的中國可能會決定將「太空支配權」取代「地球支配權」，特別是如果解放軍的縮編能換取相應的預算支持。然而，盟友的一個主要目標，將是說服新中國政府：與其他太空強權協同開發太空經濟潛力，才是更佳的戰略目標。這應包括說服中國支持類似《阿提米絲協議》（Artemis Accords）的承諾，反對太空軍事化，並對月球與火星基地實施比《南極條約》更嚴格的視察機制。
+A post-CCP China could decide to pursue dominance in space in lieu of dominance on Earth, especially if reductions in the PLA yield appropriate budgetary support. However, a major objective for the allies will be to convince the new Chinese government that realizing the potential for economic growth in concert with other space powers is the better strategic goal. This should include convincing China to favor Artemis Accord levels of commitment against space militarization and a stronger-than-Antarctica Treaty level of inspection for bases on the moon and Mars.
+<P>	後中共時代的中國可能會決定將「太空支配權」取代「地球支配權」，特別是如果解放軍的縮編能換取相應的預算支持。然而，盟友的一個主要目標，將是說服新中國政府：與其他太空強權協同開發太空經濟潛力，才是更佳的戰略目標。這應包括說服中國支持類似《阿提米絲協議》（Artemis Accords）的承諾，反對太空軍事化，並對月球與火星基地實施比《南極條約》更嚴格的視察機制。<P>	
  
-### 俄国案例
-<P>	儘管蘇聯曾研發地基攔截飛彈、軌道攔截衛星及載人戰鬥型「禮炮號」（Salyut）太空站，但美國及其民主太空夥伴在 1990 年代初期，仍決定與蘇聯解體後的俄羅斯進行太空合作。隨著中共垮台，蘇聯設計的具戰鬥能力的「和平號」（Mir）太空站及月球定居點計畫也隨之瓦解。
-<P>	從 1995 年 6 月 29 日美國太空梭「亞特蘭提斯號」與俄羅斯「和平號」太空站對接，到 2000 至 2024 年國際太空站（ISS）的聯合建設與駐守，太空合作曾為俄羅斯在後蘇聯時代與西方的關係提供了廣闊的潛力。然而，到了 2020 年代初期，這種合作縮減為美國與俄羅斯之間僅存的正向互動之一，反映出普丁政權自 2012 年以來日益增長的敵意。因此，美蘇太空合作在冷戰末期的短暫繁榮，以及 2012 年後在俄羅斯與西方/美國關係中日益孤立的地位，凸顯了一個公理：地球上的和平是太空和平的必要條件。
-<P>	此外，俄羅斯與西方的太空合作也從未達到其全部潛力。在冷戰後的三十年裡，俄羅斯確實擁有設計載人登月架構的技術能力（分別於 2007 年莫斯科航展與 2019 年巴黎航展展示）；但它始終缺乏實現這些計畫的資源。而且，俄羅斯並未藉此推動與西方更深層的合作，反而製造了疑慮——到 1992 年，俄羅斯已成為中國載人太空計畫的重要技術來源。中國購買了「禮炮號」（Soyuz）設計以開發其「神舟」系列，隨後開發了對接與太空衣系統，且極可能竊取了俄羅斯的太空站設計。
-<P>	與此同時，在美國，巴拉克·歐巴馬（Barack Obama）於 2010 年草率取消了喬治·W·布希（George W. Bush）的「星座計畫」（Constellation program）。雖然唐納·川普（Donald Trump）在 2017 年重啟了美國登月計畫，但為時已晚。歐巴馬給予中國長達十年的時間來開發其運載火箭（SLV）、登月著陸器與月球基地技術，這確保了到了 2020 年代中期，中國已具備爭奪月球支配權的勢頭。
-<P>	由於拒絕與西方結盟，俄羅斯遭遇了全面的失敗。西方與中國都選擇將俄羅斯定位為從屬的太空夥伴。2010 年後，中國停止購買俄羅斯的登月架構技術，轉而依賴自主設計。此外，俄羅斯可能無力負擔送人登月的運載火箭，這使其對中國的依賴度倍增。在俄羅斯 2022 年入侵烏克蘭後，中國成為俄羅斯唯一且主導的太空夥伴。對北京而言，關鍵教訓在於：拒絕依賴太空夥伴，轉而追求一個獨立且日益強大的太空大國。
+### Russian Example/俄国案例
+Despite the Soviet Union’s development of ground-launched interceptors, co-orbital satellite interceptors, and manned combat Salyut space stations, the US and its democratic space partners decided early in the 1990s to pursue cooperation in space with post-CPSU Russia. Soviet and Russian designs for combat-capable Mir space stations and settlements on the moon crumbled with the CPSU.
+<P>	儘管蘇聯曾研發地基攔截飛彈、軌道攔截衛星及載人戰鬥型「禮炮號」（Salyut）太空站，但美國及其民主太空夥伴在 1990 年代初期，仍決定與蘇聯解體後的俄羅斯進行太空合作。隨著中共垮台，蘇聯設計的具戰鬥能力的「和平號」（Mir）太空站及月球定居點計畫也隨之瓦解。<P>	
+From the June 29, 1995, docking of the US Space Shuttle Atlantis at the Russian Mir space station through the 2000–24 joint construction and manning of the International Space Station, cooperation in space offered a wider potential for Russia’s post-CPSU relations with the West. But in the early 2020s, it narrowed to one of America’s only positive engagements with Russia, reflecting the Putin regime’s rising hostility after 2012. As such, the brief Cold War flourishes of US-Soviet space cooperation and its increasingly isolated place in Russian-Western/US relations after 2012 highlight the axiom: peace on Earth is necessary for peace in space.
+<P>	從 1995 年 6 月 29 日美國太空梭「亞特蘭提斯號」與俄羅斯「和平號」太空站對接，到 2000 至 2024 年國際太空站（ISS）的聯合建設與駐守，太空合作曾為俄羅斯在後蘇聯時代與西方的關係提供了廣闊的潛力。然而，到了 2020 年代初期，這種合作縮減為美國與俄羅斯之間僅存的正向互動之一，反映出普丁政權自 2012 年以來日益增長的敵意。因此，美蘇太空合作在冷戰末期的短暫繁榮，以及 2012 年後在俄羅斯與西方/美國關係中日益孤立的地位，凸顯了一個公理：地球上的和平是太空和平的必要條件。<P>	
+It is also the case that Russian-Western cooperation in space could never reach its full potential. For three decades after the Cold War, Russia certainly had the talent to design architectures for manned moon exploration; it revealed one at the August 2007 Moscow Airshow and another at the 2019 Paris Airshow.168 But it never had the resources to realize such programs. And instead of pushing for deeper cooperation in this direction with the West, Russia created suspicion—by 1992 it became a key source of space technology for China’s manned space program. China purchased Soyuz designs to develop its Shenzhou, then its docking and space suit systems, and likely stole Russian space station designs.【169】
+<P>	此外，俄羅斯與西方的太空合作也從未達到其全部潛力。在冷戰後的三十年裡，俄羅斯確實擁有設計載人登月架構的技術能力（分別於 2007 年莫斯科航展與 2019 年巴黎航展展示）；但它始終缺乏實現這些計畫的資源。而且，俄羅斯並未藉此推動與西方更深層的合作，反而製造了疑慮——到 1992 年，俄羅斯已成為中國載人太空計畫的重要技術來源。中國購買了「禮炮號」（Soyuz）設計以開發其「神舟」系列，隨後開發了對接與太空衣系統，且極可能竊取了俄羅斯的太空站設計。<P>	
+In the US, meanwhile, in 2010 Barack Obama foolishly canceled George W. Bush’s Constellation program. While Donald Trump revived the US moon program in 2017, it was too late. In giving China a decade to develop its architecture of space launch vehicles (SLVs), moon landers, and moon base technology, Obama ensured that by the mid-2020s China would achieve momentum to contest dominance of the moon.
+<P>	與此同時，在美國，巴拉克·歐巴馬（Barack Obama）於 2010 年草率取消了喬治·W·布希（George W. Bush）的「星座計畫」（Constellation program）。雖然唐納·川普（Donald Trump）在 2017 年重啟了美國登月計畫，但為時已晚。歐巴馬給予中國長達十年的時間來開發其運載火箭（SLV）、登月著陸器與月球基地技術，這確保了到了 2020 年代中期，中國已具備爭奪月球支配權的勢頭。<P>	
+By refusing to side with the West, Russia lost broadly. Both the West and China chose to keep Russia as a subordinate space partner. After 2010, China stopped buying Russian moon architecture technology and instead chose to rely on indigenous designs. In addition, Russia may not be able to afford its own SLVs to reach the moon, doubling its dependence on China. Following Russia’s 2022 invasion of Ukraine, China became Russia’s only and dominant space partner. For Beijing, the key lesson was to reject dependence on space partners in favor of an independent and ever more capable space power.
+<P>	由於拒絕與西方結盟，俄羅斯遭遇了全面的失敗。西方與中國都選擇將俄羅斯定位為從屬的太空夥伴。2010 年後，中國停止購買俄羅斯的登月架構技術，轉而依賴自主設計。此外，俄羅斯可能無力負擔送人登月的運載火箭，這使其對中國的依賴度倍增。在俄羅斯 2022 年入侵烏克蘭後，中國成為俄羅斯唯一且主導的太空夥伴。對北京而言，關鍵教訓在於：拒絕依賴太空夥伴，轉而追求一個獨立且日益強大的太空大國。<P>	
 
-### 遏制中共的太空戰爭發展
-<P>	在考慮與中國進行太空合作之前，美國及其盟友的首要任務，必須是讓北京同意建立透明度與控制機制，並減少其用於進行太空戰爭的主動系統。2024 年，解放軍成立了「解放軍航太軍」（PLA Aerospace Force），負責控制中國的太空計畫，包括所有衛星、載人計畫、月球、火星與深空計畫，以及太空作戰行動。
-<P>	在 2000 年代初期，解放軍就已部署了強大的地基化學雷射反衛星系統網絡。中國航天科工集團（CASIC）的地基攔截器在 2007 年 1 月 11 日成功完成了中國首次衛星攔截與摧毀任務，隨後 CASIC 開發並部署了一系列針對低地球軌道（LEO）至中地球軌道（MEO）的地基反衛星攔截器。2022 年 1 月，太空軍的 SJ-21 抓取衛星也成功捕捉另一顆衛星並將其拋出軌道。
-<P>	中國可以修改其載人太空站與大型無人「天宮」補給船，以執行軍事偵察、戰鬥或「地球轟炸」任務；未來的任何大型軌道太空飛機或近太空高超音速飛行器（如 CASIC 的「騰雲」）皆然。航太軍對載人登月與火星計畫的控制，意味著這些計畫將包含專為軍事設計的武器或軍民兩用系統（如無人機、雷射採礦設備）。2022 年的一篇中國期刊文章甚至探討了利用月球觀測地球與地月空間，以及在拉格朗日點（Lagrangian Points）部署感測器，以便更好地監視地球與整個地月系統。
+### Arresting CPP Space Warfare Development/遏制中共的太空戰爭發展
+A key priority for the US and its allies before they can consider space cooperation with China will be Beijing’s agreement to develop a regime of transparency and control, as well as to reduce its active systems for waging war in space. In 2024 the PLA created the PLA Aerospace Force, which controls China’s space program to include all satellites, manned programs, moon, Mars, and deep space programs as well as combat operations in space.
+<P>	在考慮與中國進行太空合作之前，美國及其盟友的首要任務，必須是讓北京同意建立透明度與控制機制，並減少其用於進行太空戰爭的主動系統。2024 年，解放軍成立了「解放軍航太軍」（PLA Aerospace Force），負責控制中國的太空計畫，包括所有衛星、載人計畫、月球、火星與深空計畫，以及太空作戰行動。<P>	
+In the early 2000s, the PLA had already deployed a network of powerful ground-based chemical laser anti-satellite systems. A China Aerospace Science and Industry Corporation (CASIC) ground-based interceptor conducted China’s successful satellite interception and destruction on January 11, 2007, and CASIC has developed and deployed a series of ground-based low earth orbit (LEO) to medium earth orbit (MEO) ground-based anti-satellite interceptors. In January 2022, the SSF’s SJ-21 grappling satellite grabbed another satellite and threw it out of orbit.【170】
+<P>	在 2000 年代初期，解放軍就已部署了強大的地基化學雷射反衛星系統網絡。中國航天科工集團（CASIC）的地基攔截器在 2007 年 1 月 11 日成功完成了中國首次衛星攔截與摧毀任務，隨後 CASIC 開發並部署了一系列針對低地球軌道（LEO）至中地球軌道（MEO）的地基反衛星攔截器。2022 年 1 月，太空軍的 SJ-21 抓取衛星也成功捕捉另一顆衛星並將其拋出軌道。<P>	
+ China could modify both its manned space station and its large unmanned Tiangong supply ship to perform military surveillance, combat, or Earth bombing missions, as would any future large orbital space plane【171】 or near-space hypersonic aircraft like the CASIC Tengyun. PLA Aerospace Force control of manned moon and Mars programs means they will include purpose-designed weapons or dual-use systems (drones, laser mining equipment). A 2022 Chinese journal article explored use of the moon to observe Earth and cislunar space, as well as placement of sensors in the LaGrangian Points to better surveil Earth and the whole Earth-moon system.【172】
+ <P>	中國可以修改其載人太空站與大型無人「天宮」補給船，以執行軍事偵察、戰鬥或「地球轟炸」任務；未來的任何大型軌道太空飛機或近太空高超音速飛行器（如 CASIC 的「騰雲」）皆然。航太軍對載人登月與火星計畫的控制，意味著這些計畫將包含專為軍事設計的武器或軍民兩用系統（如無人機、雷射採礦設備）。2022 年的一篇中國期刊文章甚至探討了利用月球觀測地球與地月空間，以及在拉格朗日點（Lagrangian Points）部署感測器，以便更好地監視地球與整個地月系統。<P>	
  
-### 太空霸權或太空經濟的實現
-<P>	隨著中共垮台，中國將步入控制地月系統的過程中，即實現太空霸權。其動機在於意識到人類經濟成長的下一階段在於太空經濟，預計到 2050 年，地月經濟圈的規模將達 10 兆美元。北京亦尋求建造巨大的太空能量收集器，將能量傳輸回地球，以減少對石油的依賴。
-<P>	接著，在 2023 年 8 月中旬，中國航天科技集團（CASC）官員王偉博士提出了一項百年計畫，旨在於月球、行星及太陽系內的各類小行星上建立水冰處理中心，以生產氧氣與火箭燃料——這在含蓄上亦擴張了中共的霸權。
-<P>	後中共時代的中國在太空領域的技術潛力將接近美國。CASC 的「長征九號」運載火箭可將 50 噸物資送上月球，與美國的「太空發射系統」（SLS）相似。該火箭可能在 2030 年前推出單次使用版本，並在 2035 年前實現完全可重複使用版本。具備三芯配置的「長征十號」將於 2027 年先行問世，載重 27 噸，亦將擁有可重複使用版本。這些火箭將緊隨 SpaceX 等美國最先進的運載火箭，從而縮短美國從中獲取的經濟優勢期。
-<P>	2023 年 3 月在北京展出的「921 計畫」模型中，展示了中國首個登月著陸器的模型，證實其採用了與蘇聯時期 LK 登月著陸器類似的可拆卸減速段設計。這可能在 2030 年前實現登月，隨後中國可能建造使用充氣艙技術並覆蓋月壤的月球基地。中國亦可能計畫建立一套月球導航與監測衛星星座。
-<P>	中國於 2021 年 5 月成功完成火星探測器著陸，並可能於 2028 年啟動火星樣本返回任務。與美國一樣，中國意圖將人類送往火星並建立定居點。中國的深空重點將放在可抵達的木星衛星，並可能尋求小行星資源開採。與美國相似，中國也將利用太空望遠鏡尋找遙遠星系中適居的系外行星，並建立防禦大型小行星衝擊地球的能力。
-<P>	進入 2040 年代，這一切將變得更容易，因為到 2030 年代，中國可能正在測試早期的核太空推進系統，這能將抵達月球與火星的時間縮短一半。2023 年 3 月有報導指出，CASC 第六院 801 研究所已研發出 100 千瓦級的布雷頓循環（Brayton cycle）核熱電太空推進系統，這將接近美、俄在太空核推進技術上的發展水準。
+### Space Hegemony or Realization of Space Economy/太空霸權或太空經濟的實現
+As it falls, the CCP will be well on its way to assembling the means for controlling the Earth-moon system, or hegemony in space. It will do so by realizing that the next phase in human economic growth could reside in the space economy, projecting a $10 trillion Earth-Moon Economic Zone by 2050.【173】 Beijing also seeks to build gigantic space-power collectors to beam energy to Earth,【174】 reducing dependence on petroleum.
+<P>	隨著中共垮台，中國將步入控制地月系統的過程中，即實現太空霸權。其動機在於意識到人類經濟成長的下一階段在於太空經濟，預計到 2050 年，地月經濟圈的規模將達 10 兆美元。北京亦尋求建造巨大的太空能量收集器，將能量傳輸回地球，以減少對石油的依賴。<P>	
+Then, in mid-August 2023, China Aerospace Science and Technology Corporation (CASC) official Dr. Wang Wei proposed a 100-year program for China to build water-ice processing centers to produce oxygen and rocket fuel on Mars, planetary bodies, and asteroids extending through the solar system—which by implication would extend CCP hegemony as well.【175】
+<P>	接著，在 2023 年 8 月中旬，中國航天科技集團（CASC）官員王偉博士提出了一項百年計畫，旨在於月球、行星及太陽系內的各類小行星上建立水冰處理中心，以生產氧氣與火箭燃料——這在含蓄上亦擴張了中共的霸權。<P>	
+China’s post-CCP era in space will begin with a technical potential close to that of the United States. The CASC’s Long March-9 SLV, which can transport 50 tons to the moon, is similar to the US Space Launch System. It could fly in a single-use version by 2030 and in a fully reusable version by 2035. The tri-core configuration Long March-10 will precede it in 2027, carrying 27 tons, and will also have a reusable version. These will closely follow the most advanced US SLVs, by SpaceX Corporation, limiting the period of economic advantage the United States will derive from them.
+<P>	後中共時代的中國在太空領域的技術潛力將接近美國。CASC 的「長征九號」運載火箭可將 50 噸物資送上月球，與美國的「太空發射系統」（SLS）相似。該火箭可能在 2030 年前推出單次使用版本，並在 2035 年前實現完全可重複使用版本。具備三芯配置的「長征十號」將於 2027 年先行問世，載重 27 噸，亦將擁有可重複使用版本。這些火箭將緊隨 SpaceX 等美國最先進的運載火箭，從而縮短美國從中獲取的經濟優勢期。<P>	
+An early March 2023 Beijing exhibit on the 921 Program revealed a model of China’s first moon lander, confirming it uses a detachable deceleration stage that crashed into the moon patterned after the Soviet-era LK Moon Lander. This could land on the moon before 2030, but soon after, China may build moon bases that use inflatable room technology but cover them in moon regolith. China may also plan a constellation of navigation and surveillance satellites for the moon.
+<P>	2023 年 3 月在北京展出的「921 計畫」模型中，展示了中國首個登月著陸器的模型，證實其採用了與蘇聯時期 LK 登月著陸器類似的可拆卸減速段設計。這可能在 2030 年前實現登月，隨後中國可能建造使用充氣艙技術並覆蓋月壤的月球基地。中國亦可能計畫建立一套月球導航與監測衛星星座。<P>	
+China achieved the difficult landing of a probe on Mars in May 2021, and a Mars sample return mission may begin in 2028. But like the United States, China intends to send people to Mars and build settlements. China’s deep space focus will be on reachable moons of Jupiter, and China will likely seek to mine resources on asteroids. Like the US, China will also use space telescopes to look for habitable exoplanets in distant solar systems and create capabilities to defend the Earth from large asteroids.
+<P>	中國於 2021 年 5 月成功完成火星探測器著陸，並可能於 2028 年啟動火星樣本返回任務。與美國一樣，中國意圖將人類送往火星並建立定居點。中國的深空重點將放在可抵達的木星衛星，並可能尋求小行星資源開採。與美國相似，中國也將利用太空望遠鏡尋找遙遠星系中適居的系外行星，並建立防禦大型小行星衝擊地球的能力。<P>	
+Into the 2040s this may be easier, as by the 2030s China could also be testing early nuclear space propulsion systems that could halve the time chemical propulsion takes to reach the moon and Mars. In March 2023, a blogger reported the 801 Institute of the Sixth Academy of CASC had developed a 100-kilowatt Brayton cycle nuclear thermo-electric space propulsion system.【176】 This would be close to space nuclear propulsion developments in the United States and Russia.
+<P>	進入 2040 年代，這一切將變得更容易，因為到 2030 年代，中國可能正在測試早期的核太空推進系統，這能將抵達月球與火星的時間縮短一半。2023 年 3 月有報導指出，CASC 第六院 801 研究所已研發出 100 千瓦級的布雷頓循環（Brayton cycle）核熱電太空推進系統，這將接近美、俄在太空核推進技術上的發展水準。<P>	
 
- ### 未能協助和平政權崛起的沉重負擔
-<P>	我們也必須考慮「失敗」的代價。若中共垮台後，中國政府未能轉向多元主義與穩定，而是走向擴張，將會產生巨大的阻力，迫使民主國家必須投入巨額軍事投資以建立更深層的戰略合作。
-<P>	中共已將中國推向全球霸權的邊緣。它幾乎恢復了「中央之國」的地位，並擁有掌控龐大資訊網絡的能力。人工智慧與量子技術的結合將使這些網絡更加強大。此外，中共正邁向一個前所未見的軍事實力水平，其支柱包括核武、太空與海上優勢，以及無人聯合部隊在全球的投射能力。
-<P>	後中共時期的中國政府可能會像過去的中國王朝一樣，選擇繼續追求更大的權力。若如此，它可能會認為追求全球霸權，是為其威權政體提供政治正當性的最佳手段，並與其他威權政權結盟。這樣的結果對民主國家將是災難性的，可能需要幾代人的生命與財富來犧牲。要威懾這樣的中國不走向戰爭，將需要龐大的軍事力量。
-<P>	要對中國、俄羅斯及較小的核武流氓國家進行核威懾，美國可能需要部署 6,000 枚核彈頭、4,000 枚低至超低當量的區域核武器、2,000 枚歐洲彈頭，以及為日本、韓國與澳洲提供的區域威懾力量。此外，可能還需要一支由 1,200 艘艦艇與 20 個航母戰鬥群組成的美、日、澳、歐聯合海軍，以及由 1,000 架第六代戰鬥機與 3,000 架無人戰鬥機組成的美國空軍。同時，盟友必須維持對月球、火星及更深空的投射能力，以確保後代對太空經濟的取得權，並威懾中國領導的太空霸權。
+ ### The Burden of Failing to Help a Peaceful Post-CCP Regime Emerge/未能協助和平政權崛起的沉重負擔
+It is also necessary to consider the burden of failure. There are tremendous forces that would auger against a post-CCP Chinese government evolving toward pluralism and stability, forcing the democracies to forge deeper strategic cooperation with massive military investments.
+<P>	我們也必須考慮「失敗」的代價。若中共垮台後，中國政府未能轉向多元主義與穩定，而是走向擴張，將會產生巨大的阻力，迫使民主國家必須投入巨額軍事投資以建立更深層的戰略合作。<P>	
+The CCP has taken China to the precipice of not just global power but global hegemony. It has nearly restored the Middle Kingdom and has the power to harness vast information networks. The marriage of artificial intelligence and quantum technologies will make these networks even more powerful. In addition, the party is headed toward the achievement of a heretofore unseen level of military power based on the pillars of nuclear, space, and maritime superiority and the global projection of unmanned joint force formations.
+<P>	中共已將中國推向全球霸權的邊緣。它幾乎恢復了「中央之國」的地位，並擁有掌控龐大資訊網絡的能力。人工智慧與量子技術的結合將使這些網絡更加強大。此外，中共正邁向一個前所未見的軍事實力水平，其支柱包括核武、太空與海上優勢，以及無人聯合部隊在全球的投射能力。<P>	
+A post-CCP Chinese government may choose to continue the pursuit of greater power, as previous Chinese dynasties did. And having done so, it may also decide the pursuit of global hegemony offers the best political justification for an authoritarian regime dedicated to global power in concert with other authoritarian regimes. Such an outcome would be disastrous for the democracies and could require generations of sacrifice in terms of lives and treasure. Deterring this China from choosing war would also require an enormous military force.
+<P>	後中共時期的中國政府可能會像過去的中國王朝一樣，選擇繼續追求更大的權力。若如此，它可能會認為追求全球霸權，是為其威權政體提供政治正當性的最佳手段，並與其他威權政權結盟。這樣的結果對民主國家將是災難性的，可能需要幾代人的生命與財富來犧牲。要威懾這樣的中國不走向戰爭，將需要龐大的軍事力量。<P>	
+Nuclear deterrence of China, Russia, and smaller nuclear rogues may require a US nuclear force of 6,000 deployed warheads, 4,000 low- to ultra-low-yield regional nuclear weapons, 2,000 European warheads, and regional deterrent forces for Japan, South Korea, and Australia. A combined US, Japanese, Australian, and European naval force of 1,200 ships and 20 aircraft carrier battle groups, and a US air force of 1,000 sixth-generation combat and 3,000 unmanned combat aircraft may be necessary. At the same time, the allies will need to sustain a projection to the moon, Mars, and beyond to ensure access to the space economy for future generations and to deter a Chinese-led space hegemony.
+<P>	要對中國、俄羅斯及較小的核武流氓國家進行核威懾，美國可能需要部署 6,000 枚核彈頭、4,000 枚低至超低當量的區域核武器、2,000 枚歐洲彈頭，以及為日本、韓國與澳洲提供的區域威懾力量。此外，可能還需要一支由 1,200 艘艦艇與 20 個航母戰鬥群組成的美、日、澳、歐聯合海軍，以及由 1,000 架第六代戰鬥機與 3,000 架無人戰鬥機組成的美國空軍。同時，盟友必須維持對月球、火星及更深空的投射能力，以確保後代對太空經濟的取得權，並威懾中國領導的太空霸權。<P>	
 
-## 結論
-<P>	我們更樂於想像，中共垮台後的中國能為人類歷史開啟一段長期且正面的篇章。前 CIA 局長羅伯特·蓋茨（Robert Gates）在其 1996 年回憶錄中描述了 1991 年那種「大功告成卻缺乏高潮」的感覺：「美國最偉大的勝利——這場歷經四十年、耗費驚人成本所維持的恆心與目標之勝利——卻成了一場奇特地缺乏喜悅的勝利。我們贏得了冷戰，但卻沒有閱兵式。」
-<P>	至少，美國、日本及盟友民主國家應做好準備，在中共終結之際分析其覆滅的原因。他們應準備好向中國人民與世界詳盡地揭露其恐怖統治的真相，以及其統治可能導致數億人死亡的潛力。他們應制定計畫協助中國人民建立一個不威脅世界的多元化未來，例如透過使中國的軍隊、內部安全與情報力量走向專業化與合理化。
-<P>	但同時，慶祝中共的終結對全球而言，乃至未來數百年而言，也是至關重要的。中共在 2010 年代建立了一套集中營體系，用以消滅維吾爾人的民族主義並壓制其伊斯蘭信仰。這套系統現在已可用於「處理」香港、台灣、琉球及其他可能被征服領土中的民主信仰青年，以及在對民主國家的戰爭中可能俘虜的數百萬囚犯。規避這種全球性的恐怖統治，將為人類提供一個正向的轉折點，因為全球近 20% 的人口將有機會逃離中共的全球支配與破壞。屆時，他們將能發展中國民主，並擴展通往繁榮（甚至是銀河繁榮）的道路。
-<P>	然而，為了實現中國與世界的更美好未來，美國、日本及其他盟友民主國家需要動員一支師級規模的「重建軍」，以保護新中國政府免受叛亂（特別是來自解放軍與安全部門）的威脅，並蒐集情報。隨後，盟友應建立一個多國諮詢團，協助新政府制定改革優先事項，特別是使前中共的軍事與安全機構專業化。只要能說服新中國政府接受前所未有的深度透明化，諮詢團應協助新政府制定以下外交與國防優先事項：
-<P>	終止全球霸權目標。
-<P>	停止對南海、東海、琉球及阿魯納恰爾邦的領土主張。
-<P>	與台灣簽署和平條約，並使台灣戰區去軍事化。
-<P>	停止對北韓、巴基斯坦與伊朗提供大規模殺傷性武器及維繫獨裁政權的支持。
-<P>	在接受這些新國際立場的前提下，諮詢團應致力於說服新中國政府：建立一個新型的專業軍事體制，可以裁撤 2020 年代中期解放軍一半以上的兵力，以及幾乎所有的武警部隊，僅保留殘餘的軍力與少部分民兵，主要用於國內災難與應急響應。其餘力量將足以應對真正的國防需求，以及參與穩定後共產政權（如北韓、巴基斯坦或後穆拉黨時代的伊朗）的多邊任務。
+## Conclusion/結論
+It is far preferable to imagine that a China after the fall of the CCP will make possible a long and positive stage in human history. In his 1996 memoir on how the United States won the Cold War, former CIA Director Robert Gates captured the 1991 sense of anticlimax: “And so the greatest of American triumphs—a triumph of constancy and purpose sustained over four decades at staggering cost—became a peculiarly joyless victory. We had won the Cold War but there would be no parade.”【177】
+<P>	我們更樂於想像，中共垮台後的中國能為人類歷史開啟一段長期且正面的篇章。前 CIA 局長羅伯特·蓋茨（Robert Gates）在其 1996 年回憶錄中描述了 1991 年那種「大功告成卻缺乏高潮」的感覺：「美國最偉大的勝利——這場歷經四十年、耗費驚人成本所維持的恆心與目標之勝利——卻成了一場奇特地缺乏喜悅的勝利。我們贏得了冷戰，但卻沒有閱兵式。」<P>	
+At the very least, the United States, Japan, and allied democracies should be prepared, in the event of the CCP’s end, to analyze its demise. They should be ready to tell the Chinese people and the world, in great detail, the truth of its reign of terror and of its potential to have killed hundreds of millions more. They should have plans in place to help the Chinese people build a pluralistic future that does not threaten the world, such as by professionalizing and rationalizing China’s military, internal security, and intelligence forces.
+<P>	至少，美國、日本及盟友民主國家應做好準備，在中共終結之際分析其覆滅的原因。他們應準備好向中國人民與世界詳盡地揭露其恐怖統治的真相，以及其統治可能導致數億人死亡的潛力。他們應制定計畫協助中國人民建立一個不威脅世界的多元化未來，例如透過使中國的軍隊、內部安全與情報力量走向專業化與合理化。<P>	
+But it will also be important to celebrate the demise of the CCP—globally, and for centuries to come. The party spent the 2010s building a system of concentration camps to exterminate Uyghurs’ nationalism and suppress their Muslim faith. This system is now available to “process” young believers in democracy in Hong Kong, Taiwan, the Ryukyu Islands, and other territories that might be conquered, as well as millions of prisoners whom China might capture in wars against the democracies. Averting this global reign of terror would offer a positive pivot for humanity, as nearly 20 percent of the world’s population would have a chance to escape the CCP’s harness of global domination and destruction. They would then be able to develop a Chinese democracy and expand the paths to prosperity, even galactic prosperity.
+<P>	但同時，慶祝中共的終結對全球而言，乃至未來數百年而言，也是至關重要的。中共在 2010 年代建立了一套集中營體系，用以消滅維吾爾人的民族主義並壓制其伊斯蘭信仰。這套系統現在已可用於「處理」香港、台灣、琉球及其他可能被征服領土中的民主信仰青年，以及在對民主國家的戰爭中可能俘虜的數百萬囚犯。規避這種全球性的恐怖統治，將為人類提供一個正向的轉折點，因為全球近 20% 的人口將有機會逃離中共的全球支配與破壞。屆時，他們將能發展中國民主，並擴展通往繁榮（甚至是銀河繁榮）的道路。<P>	
+But to realize a much better future for China and the world, the United States, Japan, and the other allied democracies will need to mobilize a division-sized reconstruction corps to secure the new Chinese government from revolts, especially from the PLA and security services, and to gather intelligence. The allies should then create a multinational advisory mission to assist the new government in formulating reform priorities, especially the professionalization of the former CCP’s military and security service organs. Provided they can convince the new Chinese government to accept deep and unprecedented levels of transparency, the advisory mission should help the new government formulate foreign and defense priorities:
+<P>	然而，為了實現中國與世界的更美好未來，美國、日本及其他盟友民主國家需要動員一支師級規模的「重建軍」，以保護新中國政府免受叛亂（特別是來自解放軍與安全部門）的威脅，並蒐集情報。隨後，盟友應建立一個多國諮詢團，協助新政府制定改革優先事項，特別是使前中共的軍事與安全機構專業化。只要能說服新中國政府接受前所未有的深度透明化，諮詢團應協助新政府制定以下外交與國防優先事項：<P>	
+• End goals of global hegemony.
+<P>	終止全球霸權目標。<P>	
+•Cease territorial claims to the South and East China Seas, Ryukyus, and Arunachal Pradesh.
+<P>	停止對南海、東海、琉球及阿魯納恰爾邦的領土主張。<P>	
+•Establish a peace treaty with Taiwan and demilitarize the Taiwan theater.
+<P>	與台灣簽署和平條約，並使台灣戰區去軍事化。<P>	
+•End weapons of mass destruction and dictatorship-sustaining support for North Korea, Pakistan, and Iran.
+<P>	停止對北韓、巴基斯坦與伊朗提供大規模殺傷性武器及維繫獨裁政權的支持。<P>	
+With acceptance of this new international stance, the advisory mission should work to convince the new Chinese government that a new professional military establishment can eliminate more than half of the mid-2020s PLA forces and nearly all of the PAP, but retain a residual military force plus a fraction of the Militia force, primarily for domestic disaster and emergency responses. The remainder would be sufficient for real national defense and multilateral missions to stabilize post-communist North Korea, Pakistan, or post-mullah Iran.
+<P>	在接受這些新國際立場的前提下，諮詢團應致力於說服新中國政府：建立一個新型的專業軍事體制，可以裁撤 2020 年代中期解放軍一半以上的兵力，以及幾乎所有的武警部隊，僅保留殘餘的軍力與少部分民兵，主要用於國內災難與應急響應。其餘力量將足以應對真正的國防需求，以及參與穩定後共產政權（如北韓、巴基斯坦或後穆拉黨時代的伊朗）的多邊任務。<P>	
+China will still have regional and global national security interests, but by divorcing its new government from the hegemony-dictatorship survival priorities of the CCP, the country could become a welcome partner in stability operations. Such a government, by shelving the former CCP ambitions for military superiority and hegemony in space, could also become a valuable partner in humanity’s next phase of economic growth on the moon, Mars, and beyond.
 <P>	中國仍將擁有區域性與全球性的國家安全利益，但透過將新政府與中共「霸權-獨裁生存」的優先事項脫鉤，中國將能成為穩定行動中受歡迎的夥伴。透過擱置前中共追求軍事優勢與太空霸權的野心，這樣的政府亦能成為人類在月球、火星及更深空經濟成長階段中，極具價值的合作夥伴。
