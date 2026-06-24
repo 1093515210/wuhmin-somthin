@@ -31,17 +31,55 @@ Ms. Shea is a member of the bar of the District of Columbia. She is a graduate o
 The decision to publish under full name, pseudonym, or anonymity was left to the discretion of each contributing author. In some cases, authors chose to withhold their identities due to professional, personal, or security considerations. The views expressed in this volume are those of the individual authors and do not necessarily reflect the positions of any affiliated institutions or sponsoring organizations.<p>
 是否以全名、笔名或匿名发表文章由每位作者自行决定。在某些情况下，作者出于职业、个人或安全方面的考虑而选择隐瞒身份。本书所表达的观点仅代表作者个人，并不一定反映其所属机构或赞助组织的立场。
 
-# 执行摘要——余茂春
-随着中国共产党（中共）不断强化其政权并追求全球主导地位，它面临着重大且复杂的结构性挑战。在国内，由于错误的政策，中国经济增长急剧放缓，人口老龄化和出生率下降影响着国家的劳动力供给、消费和社会保障体系。住房市场陷入危机，数百万套公寓滞销，房地产开发商破产，高企的青年失业率进一步加剧了社会不稳定。中共内部的政治腐败、官僚机构效率低下以及其他浪费也阻碍了经济发展和公众信任。<p>
-在国际上，与美国和其他西方国家的贸易紧张局势威胁着出口和外国直接投资。<p>
-北京的强制性政策使与全球南方国家的关系复杂化，这些国家往往欠中国债务。外交官和国际组织的其他官员越来越怀疑中国的全球影响力，这使得外交政策更加难以实施。<p>
-尽管中华人民共和国此前也曾经历过危机，但中国政权突然崩溃并非完全不可想象。决策者需要考虑，如果这个世界上执政时间最长的共产主义独裁政权和第二大经济体因国内外困境而崩溃，将会发生什么，以及他们需要采取哪些措施。<p>
-本报告由军事、情报、经济、人权、转型正义和宪政等领域的专家撰写，探讨了中共政权垮台后应立即采取的初步措施，以及中国在稳定期后可能采取的长期发展轨迹。本书运用历史分析、战略远见和特定领域的专业知识，将这些挑战描述为探索各种可能性的契机。各章节分别探讨了单一政党制度如何在国家关键领域崩溃、政治制度如何转型，以及中国独特的政治、经济和社会形势。这些章节共同评估了在政权崩溃后稳定一个长期遭受压制的国家的艰巨任务，以及塑造中国未来的各种力量。作者希望通过这些努力，为应对转型过程中的风险和机遇提供政策建议。<p>
-由一位非哈德逊研究所作者撰写的章节《重返中国：中共垮台后美国特种作战部队的作用》描述了二战期间美国在中国的军事行动，并指出美国特种作战部队可以帮助稳定后中共时代的中国。该章节设想，特种作战部队可以协助临时政府，保护关键基础设施，并促进新政府的和平建立，同时“通过”当地力量开展工作。该章节还强调了叙事、历史记忆和象征性合法性在后共产主义转型中的文化重要性。<p>
-在第二章“中共政权垮台后精准打击生物武器设施”中，瑞安•克拉克评估了中共的生物武器基础设施，并警告称，解放军的两用生物研究构成战略威胁。他概述了三种摧毁生物武器实验室的方案，重点在于同时开展行动、控制设施周边以及安全提取或销毁危险材料。本章主张彻底瘫痪这些项目，以防止扩散和灾难发生。随后，克拉克在“中共垮台后重组中国金融体系”一章中倡导通过资本重组来改革中国经济，同时新政府应废除非法债务、私有化国有资产并实施权力下放。他强调，中共的政策限制了中国的经济潜力，并认为自由化的金融体系对于国内繁荣和融入全球市场都至关重要。<p>
-在题为“保护中国在美国的资产”的章节中，戈登•G•张建议华盛顿“将美国企业和公民撤出中国”，并将中国实体从美国经济的重要部门中移除。该章节着重指出与北京接触的脆弱性，并阐述了美国应该如何处理中国在美国的资产。<p>
-里克•费舍尔在《保障和重组解放军、人民武装力量和民兵》一文中概述了中共垮台后中国庞大安全机构的复员和专业化计划。该计划建议保留一支更精简、更负责任的军队，专注于国防和灾害救援，同时解散与政治镇压相关的部队。这样，一支不怀有霸权野心的中国军队就能帮助新政府融入维和行动和太空探索伙伴关系。<p>
-《间谍对间谍对间谍：中央权威缺失下的中共安全和间谍机构》一章探讨了国家安全部（MSS）和地方公安局（PSB）可能出现的碎片化问题。该章借鉴了欧洲政治转型中的经验教训，尤其是在解散秘密警察网络和开放档案以供公众审查方面。<p>
-在《中国自治区与人权》一书中，妮娜•谢伊探讨了在转型时期保护人权的重要性。她认为，美国应该进行干预，以防止种族暴力、内战和政治动荡，尤其关注中国的五个自治区——广西、新疆、西藏、内蒙古和宁夏。她还强调，需要采取措施缓解其他群体的不满，包括基督徒和法轮功等宗教少数群体。<p>
-《如何在中国启动真相与和解进程》一文的作者阐述了中国只有通过调查和公开过去的罪行，才能真正摆脱过去的罪恶。该章节建议建立一个效仿南非的国家真相与和解委员会，并指出，如果没有宽恕与和解，和平过渡到民主将举步维艰。<p>
-最后一章“制宪会议方案”着重探讨了后共产主义时代的中国如何建立宪政民主并起草新宪法。本章阐述了制宪会议的运作方式、某些地区的边界是否应该重新划分、中国与台湾的关系应该如何变化，以及新国家的名称应该是什么。<p>
+# EXECUTIVE SUMMARY/执行摘要——余茂春
+As the Chinese Communist Party (CCP) strengthens its regime and pursues global dominance, it faces significant and complex structural challenges. Domestically, Chinese economic growth is declining drastically under misguided policies while an aging population and declining birth rates affect the country’s labor supply, consumption, and social security system. The housing market is in crisis as millions of apartments remain unsold and real estate developers go bankrupt, and high youth unemployment creates further instability. Political corruption in the CCP, bureaucratic inefficiency, and other waste also hinder economic progress and public trust.
+
+隨著中共（CCP）不斷強化其政權並追求全球霸權，它也正正面臨著極其巨大且複雜的結構性挑戰。在國內方面，由於錯誤政策的影響，中國的經濟成長正呈現出劇烈下滑的趨勢；與此同時，人口老化與出生率下降，也正一步步侵蝕著國家的勞動力供應、消費能力以及社會保障體系。房地產市場正陷入一場危機之中——數以百萬計的公寓依然滯銷，房地產開發商更是紛紛走向破產，而高企的青年失業率，則為社會埋下了更深層的不穩定因素。此外，中共內部的政治腐敗、官僚體系的低效，以及種種資源的浪費，亦都在阻礙著經濟的進步與公眾信任的建立。
+
+Internationally, trade tensions with the United States and other Western nations threaten exports and foreign direct investment. And Beijing’s coercive policies complicate relations with the Global South, where countries often owe debt to China. Diplomats and other officials at international organizations are increasingly skeptical of the China’s global influence, making foreign policy more difficult.
+
+在國際層面上，與美國及其他西方國家的貿易緊張局勢，正威脅著中國的出口與外商直接投資。而北京採取的高壓政策，也讓其與「全球南方」國家的關係變得更加複雜，因為那些國家往往背負著對華的債務。在國際組織中的外交官與官員們，對於中國的全球影響力也正抱持著越來越懷疑的態度，這使得其外交政策的推行變得愈發困難。
+
+While the People’s Republic of China (PRC) has weathered crises before, a sudden regime collapse in China is not entirely unthinkable. Policymakers need to consider what might happen and what steps they would have to take if the world’s longest-ruling Communist dictatorship and second-largest economy collapses due to its domestic and international troubles.
+
+儘管中華人民共和國（PRC）過去也曾度過無數危機，但中國政權的突然崩潰，並非完全是不可能的選項。因此，決策者們必須深思：如果這個世界上統治時間最長、且規模第二大的共產獨裁政權，因為國內外的種種難題而崩潰，那麼世界將會發生什麼事？我們又必須採取什麼樣的行動？
+
+With chapters written by experts in military affairs, intelligence, economics, human rights, transitional justice, and constitutional governance, this report examines the initial steps that should be taken in the immediate aftermath of the CCP regime’s collapse and the long-term trajectory China might take after a stabilization period. Drawing on historical analysis, strategic foresight, and domain-specific expertise, this anthology describes these challenges as an exercise in possibilities. The different chapters explore how a single-party system collapses in key sectors of the country and how political institutions transform, as well as China’s unique political, economic, and social situation. Taken together, they assess the daunting tasks of stabilizing a long-repressed country after it has collapsed, in addition to the forces shaping China’s future. In so doing, the authors hope to offer policy recommendations for managing the risks and opportunities of a transition.
+
+本報告集結了軍事、情報、經濟、人權、轉型正義以及憲政治理等領域的專家，共同剖析了在中共政權崩潰後的初期應採取哪些步驟，以及在局勢穩定之後，中國可能走向的長期軌跡。透過歷史分析、戰略預判以及各領域的專業知識，本報告將這些挑戰視為一場「可能性之演練」。各章節將分別探討：單一政黨體制如何在國家的關鍵領域崩解、政治制度將如何轉型，以及中國獨特的政治、經濟與社會現狀。綜合而言，這些內容不僅評估了在一個長期遭受壓抑的國家崩潰後，如何穩定局勢這項艱巨任務，也探討了形塑中國未來的各種力量。透過這些研究，作者們希望能為如何應對轉型過程中的風險與機遇，提供具體的政策建議。
+
+The chapter “OSS in China Again: The Role of US Special Operations Forces after CCP Collapse,” written by an author outside Hudson Institute, describes US operations in China during World War II and suggests that US special operations forces (SOF) can help stabilize a post-CCP China. It envisions SOF aiding provisional authorities, protecting critical infrastructure, and facilitating the peaceful emergence of a new government while working “by, with, and through” local actors. The chapter also underscores the cultural importance of narratives, historical memory, and symbolic legitimacy in a post-Communist transition.
+
+在《中共崩潰後美國特種作戰部隊再次介入中國：OSS的角色》這一章中，非哈德遜研究所（Hudson Institute）作者描述了二戰期間美國在中國的作戰行動，並提出在中共垮台後，美國特種作戰部隊（SOF）可以協助穩定新興的中國局勢。內容展望了SOF協助臨時政權，守衛關鍵基礎設施，以及促進新政府和平過渡的可能角色，強調他們應“以當地人士為合作夥伴、與之協作、並透過他們”來行動。文章還特別強調，行動中維持敘事、歷史記憶與象徵性合法性的重要性，這些都是後共產主義轉型中不可或缺的文化元素。
+
+In the second chapter, “Targeting Bioweapons Facilities with Precision after a CCP Regime Collapse,” Ryan Clarke assesses the CCP’s bioweapons infrastructure and warns that the People’s Liberation Army’s (PLA) dual-use biological research poses a strategic threat. He outlines three options for neutralizing bioweapons labs, with an emphasis on simultaneous operations, control of facility perimeters, and safe extraction or destruction of hazardous materials. The chapter argues for completely disabling the programs to prevent proliferation and catastrophe. 
+
+第二章《中共崩潰後精準打擊生化武器設施》由萊恩•克拉克（Ryan Clarke）撰寫，他評估了中共的生物武器基礎設施，警告人民解放軍（PLA）雙用途的生物研究構成戰略威脅。章中提出三種消除生物武器實驗室的方案，強調同步行動、控制設施周界以及安全提取或摧毀危險材料的重要性。文章主張，應徹底中止相關計畫，以防止武器擴散與災難。
+
+Clarke then advocates for overhauling the Chinese economy by recapitalizing the country while a new government repudiates illegitimate debts, privatizes state assets, and implements decentralization in “Restructuring the Chinese Financial System after CCP Collapse.” He emphasizes that CCP policies have constrained China’s economic potential and argues that a liberalized financial architecture is essential for both domestic prosperity and integration with global markets.
+
+此外，克拉克還呼籲徹底重組中國經濟體系，建議在新政府拒絕不合法債務、私有化國有資產、實施去中心化的同時，進行“重整中國金融體系”。他強調，中共的政策限制了中國經濟的潛能，認為建立自由化的金融架構，對於促進國內繁榮與融入全球市場都至關重要。
+
+In the chapter “Securing China’s Assets in America,” Gordon G. Chang advises Washington to “get American businesses and citizens out of China” and to remove PRC entities from important sectors of the US economy. It highlights vulnerabilities of engaging with Beijing and describes what America should do with PRC assets in the US.
+
+第三章《在美國確保中國資產》由章家敦（Gordon G. Chang）建議華盛頓應“將美國企業與公民從中國撤離”，並清除在美國經濟中與中共相關的關鍵領域的中共實體。他指出與北京合作的脆弱性，並分析了美國應該如何處理在美國境內的中共資產，以降低戰略風險、保障國家安全。
+
+Rick Fisher in “Securing and Restructuring the PLA, PAP, and People’s Militia” outlines a post-CCP demobilization and professionalization plan for China’s vast security apparatus. It recommends retaining a leaner, more accountable military force focused on national defense and disaster relief while disbanding units associated with political repression. A Chinese military force without hegemonic ambitions can then help a new government integrate into peacekeeping operations and space exploration partnerships.
+
+在《確保並重組解放軍、武警及民兵》這一章節中，瑞克•費雪（Rick Fisher）針對中國龐大的安全機構，勾勒出了一套關於中共垮台後的復員與專業化計畫。該計畫建議，應該保留一支更加精簡、且具備更高問責性的軍事力量，使其專注於國防與災害救助，同時必須解散那些與政治鎮壓相關的單位。唯有如此，一支不再抱持霸權野心的中國軍隊，才能協助新政府融入國際維和行動，並參與太空探索的合作夥伴關係。
+
+The chapter “Spy Versus Spy Versus Spies: The CCP’s Security and Espionage Apparatus in the Absence of Central Authority” explores the potential fragmentation of the Ministry of State Security (MSS) and local Public Security Bureaus (PSBs). It draws lessons from European political transitions, particularly in dismantling secret police networks and opening archives for public scrutiny.
+
+關於《諜戰重重：缺乏中央權威時之中共安全與情報機構》這一章節，則探討了國家安全部（MSS）與地方公安局（PSB）可能出現的碎片化風險。文章從歐洲的政治轉型中汲取了教訓，特別是在拆解秘密警察網絡，以及開放檔案供公眾查閱這兩個方面。
+
+In “China’s Autonomous Regions and Human Rights,” Nina Shea discusses the importance of protecting human rights during a transitional period. According to her, the US should intervene to prevent ethnic violence, civil wars, and political ret ribution, with a special focus on China’s five autonomous regions— Guangxi, Xinjiang, Tibet, Inner Mongolia, and Ningxia. She also highlights the need for measures to alleviate the grievances of other groups, including religious minorities like Christians and the Falun Gong.
+
+在《中國的自治區與人權》中，妮娜•謝（Nina Shea）討論了在轉型期間保護人權的重要性。根據她的觀點，美國應該介入，以防止民族暴力、內戰以及政治報復的發生，並且必須特別關注中國的五個自治區——廣西、新疆、西藏、內蒙古與寧夏。此外，她也強調了必須採取相關措施，來緩解其他群體的怨恨，這其中也包含了基督徒與法輪功等宗教少數群體。
+
+The author of “How to Initiate a Truth and Reconciliation Process in China” describes how China can only move beyond past evils through the investigation and public disclosure of those crimes. The chapter recommends establishing a national truth and reconciliation commission modeled after South Africa’s, and argues that peacefully transitioning to democracy will be difficult without forgiveness and reconciliation.
+
+至於《如何在中國啟動真相與和解程序》一章，作者描述了中國唯有透過對過去罪行的調查與公開披露，才能真正跨越過去的惡行。該章節建議，應該效仿南非模式，建立一個國家級的「真相與和解委員會」，並主張若缺乏寬恕與和解，那麼向民主制度的和平轉型將會是一件極其困難的事。
+
+The final chapter, “A Constitutional Convention Plan,” focuses on how a post-Communist China can establish a constitutional democracy and draft a new constitution. It addresses how a constitutional convention would work, whether the boundaries of certain regions should be redrawn, how China’s relationship with Taiwan should change, and what the new country’s name should be.
+
+最後一個章節《制憲會議計畫》，則聚焦於後共產時代的中國，該如何建立憲政民主並起草一部新的憲法。內容涉及了制憲會議將如何運作、某些地區的邊界是否應該重新劃定、中國與台灣的關係應如何改變，以及，那個全新的國家，究竟應該被稱作什麼名字。
