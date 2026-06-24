@@ -3,6 +3,7 @@
 # OSS-IN-CHINA-AGAIN:THE-ROLE-OF-US-SPECIAL-OPERATIONS-FORCES-AFTER-CCP-COLLAPSE./战略情报局再临神州：论中共倾覆后美军特种部队之运筹
 
 **佚名**
+
 The Nobel Prize–winning Russian author Boris Pasternak wrote, “I have found and given names to all this sorcery that has been the cause of suffering, bafflement, amazement, and dispute for several decades. Everything is named in simple, transparent, and sad words.” Pasternak’s words were a love story about a doctor named Yurii and “a girl from a different world” named Lara who lived during Russia’s “chain of revolutionary decades.” Sorcery was the vast Bolshevik design to tear down the individual, remake society, and impose a world-historical ideology on private thoughts and beliefs: the “people had to be cured, by every means of terrorism, of the habit of thinking and judging for themselves, and forced to see what didn’t exist, to assert the very opposite of what their eyes told them.” To break the spell of the party-state’s elaborate shams and appropriation of the past, Pasternak offered simple, transparent, and sad words “to call each thing by its right name.”1
 
 俄国文豪、诺贝尔文学奖得主帕斯捷尔纳克曾写道：“此数十年来，种种惑众之妖术，致使生灵涂炭、迷惘、惊诧、争端不断。今吾已悉数物色并正其名。万事万物，皆归于朴素、清澈而哀伤之辞章。”此乃帕氏笔下之情史，述及尤里医生与“异界少女”拉拉，于俄国“连绵革命之秋”之遭际。所谓“妖术”，即布尔什维克之宏图：摧毁个人，重塑社会，将大同意识形态强加于私人信仰之上。“必以种种恐怖手段，医治人民独立思考与裁判之痼疾，迫其视虚为实，指鹿为马，虽亲目所见亦不可信。”为破除党国苦心经营之幻象与对历史之僭夺，帕氏乃以朴素、清澈而哀伤之辞，力求“名副其实，归于本真”。
