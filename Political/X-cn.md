@@ -48,7 +48,7 @@ https://x.com/AlexandreA23520/status/2062699365240848669?s=20 都喜欢说经济
 <p>独派语言6  https://x.com/AlexandreA23520/status/2076933173968326744?s=20
 <p>《这些词怎么可能会组成一句话呢》  https://x.com/AlexandreA23520/status/2076937977104924851?s=20
 <p>减少偶像崇拜  https://x.com/AlexandreA23520/status/2071877159170589029?s=20
-<p>
+<p>00后什么都没看透  https://x.com/AlexandreA23520/status/2077048408850702769?s=20
 <p>
 <p>
 <p>
