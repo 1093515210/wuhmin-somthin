@@ -59,7 +59,7 @@ https://x.com/AlexandreA23520/status/2062699365240848669?s=20 都喜欢说经济
 <p>对于官方语言定义成英语的回应  https://x.com/AlexandreA23520/status/2078712299989213205?s=20
 <p>中国人实用主义拜神 https://x.com/AlexandreA23520/status/2078784420799025241?s=20
 <p>反蒙反满匈奴  https://x.com/AlexandreA23520/status/2078789828997443914?s=20
-<p>
+<p>中文用户要讲逻辑 https://x.com/AlexandreA23520/status/2078794920777691197?s=20
 <p>
 <p>
 <p>
