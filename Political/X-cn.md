@@ -57,7 +57,7 @@ https://x.com/AlexandreA23520/status/2062699365240848669?s=20 都喜欢说经济
 <p>灭共革命 https://x.com/AlexandreA23520/status/2078455289922101725?s=20
 <p>多元民族 https://x.com/AlexandreA23520/status/2072586282627461454?s=20
 <p>对于官方语言定义成英语的回应  https://x.com/AlexandreA23520/status/2078712299989213205?s=20
-<p>
+<p>中国人实用主义拜神 https://x.com/AlexandreA23520/status/2078784420799025241?s=20
 <p>
 <p>
 <p>
