@@ -60,7 +60,7 @@ https://x.com/AlexandreA23520/status/2062699365240848669?s=20 都喜欢说经济
 <p>中国人实用主义拜神 https://x.com/AlexandreA23520/status/2078784420799025241?s=20
 <p>反蒙反满匈奴  https://x.com/AlexandreA23520/status/2078789828997443914?s=20
 <p>中文用户要讲逻辑 https://x.com/AlexandreA23520/status/2078796458455654585?s=20
-<p>
+<p>没人能选择出生 https://x.com/AlexandreA23520/status/2078889287282500030?s=20
 <p>
 <p>
 <p>
