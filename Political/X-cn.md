@@ -67,7 +67,7 @@ https://x.com/AlexandreA23520/status/2062699365240848669?s=20 都喜欢说经济
 <p> \0/ https://x.com/AlexandreA23520/status/2079088860538302894?s=20
 <p>in creator we trust https://x.com/AlexandreA23520/status/2079144194531368970?s=20
 <p>水母狒狒 https://x.com/AlexandreA23520/status/2080257288561189308?s=20
-<p>西方左派口号整活 https://x.com/AlexandreA23520/status/2080597922123772140?s=20
+<p>西方左派口号整活 https://x.com/AlexandreA23520/status/2080603532450050454?s=20
 <p>
 <p>
 <p>
