@@ -70,7 +70,7 @@ https://x.com/AlexandreA23520/status/2062699365240848669?s=20 都喜欢说经济
 <p>西方左派口号整活 https://x.com/AlexandreA23520/status/2080603532450050454?s=20
 <p>独派建设 https://x.com/AlexandreA23520/status/2082390821337219516?s=20
 <p>独派联盟 https://x.com/AlexandreA23520/status/2082390738260697542?s=20
-<p>
+<p>现任X CEO  https://x.com/AlexandreA23520/status/2082417233171542173?s=20
 <p>
 <p>
 <p>
