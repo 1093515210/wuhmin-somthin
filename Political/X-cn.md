@@ -72,7 +72,7 @@ https://x.com/AlexandreA23520/status/2062699365240848669?s=20 都喜欢说经济
 <p>独派联盟 https://x.com/AlexandreA23520/status/2082390738260697542?s=20
 <p>现任X CEO  https://x.com/AlexandreA23520/status/2082417233171542173?s=20
 <p>辈分叠加问候 https://x.com/AlexandreA23520/status/2082762106223439901?s=20
-<p>
+<p>天才=99%汗水+1%灵感  https://x.com/AlexandreA23520/status/2083483901213786139?s=20
 <p>
 <p>
 <p>
