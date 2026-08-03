@@ -77,7 +77,7 @@ https://x.com/AlexandreA23520/status/2062699365240848669?s=20 都喜欢说经济
 <p>政治是利益的妥协与交换  https://x.com/AlexandreA23520/status/2083526942175683068?s=20
 <p>诸夏自治  https://x.com/AlexandreA23520/status/2083833929317101967?s=20
 <p>生活随笔  https://x.com/AlexandreA23520/status/2083858567480901894?s=20
-<p>
+<p>毋明释得罪言痴语 https://x.com/AlexandreA23520/status/2084277129903223291?s=20
 <p>
 <p>
 <p>
