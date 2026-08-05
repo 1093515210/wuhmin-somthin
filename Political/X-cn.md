@@ -1,3 +1,4 @@
+X音乐歌单  https://x.com/AlexandreA23520/status/2084963341567689175?s=20<p>
 X中文圈用户状态歌单(音乐化社会诊断)<p>
 Hollywood Undead - Undead：整體腐爛卻不死的僵屍戰場感。<p>
 Marilyn Manson - The Nobodies：一群nobodies拼命想證明自己存在。<p>
