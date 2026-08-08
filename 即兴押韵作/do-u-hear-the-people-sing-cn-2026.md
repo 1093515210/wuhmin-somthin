@@ -10,16 +10,16 @@ Do you hear the people sing? Singing a song of angry men?
 <P>	There is a life about to start when tomorrow comes
   
 # 主歌
-<P>	汝愿加入这场斗争？
+<P>	汝愿加入这场斗争？<P>	
  Will you join in our crusade? 
-<P>	联手共筑自强？
+<P>	联手共筑自强？<P>	
 Who will be strong and stand with me?
-<P>	越过街头和堡垒新世界是否渴望？
+<P>	越过街头和堡垒新世界是否渴望？<P>	
 Beyond the barricade is there a world you long to see?
 <P>	凭战斗洒鲜血眼泪汗珠创造希望！
 
 # 副歌
-<P>	听啊众人在齐唱？来自内心愤怒呐喊？
+<P>	听啊众人在齐唱？来自内心愤怒呐喊？<P>	
 Do you hear the people sing? Singing a song of angry men?
 <P>	众人之声合奏这首发出——不再为奴宣战！
 <P>It is the music of a people who will not be slaves again
@@ -37,7 +37,7 @@ Do you hear the people sing? Singing a song of angry men?
 <P>	The blood of the martyrs will water the meadows of France!
 
 # 副歌
-<P>	听啊众人在齐唱？来自内心愤怒呐喊？
+<P>	听啊众人在齐唱？来自内心愤怒呐喊？<P>	
 Do you hear the people sing? Singing a song of angry men?
 <P>	众人之声合奏这首发出——不再为奴宣战！
 <P>It is the music of a people who will not be slaves again
