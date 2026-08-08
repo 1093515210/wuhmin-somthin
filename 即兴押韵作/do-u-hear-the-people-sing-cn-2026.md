@@ -1,6 +1,6 @@
 **do you hear the people sing 2026年中文版，youtube上有2015年上传的版本。**
 # 副歌
-<P>	听啊众人在齐唱？来自内心愤怒呐喊？
+<P>	听啊众人在齐唱？来自内心愤怒呐喊？<P>	
 Do you hear the people sing? Singing a song of angry men?
 <P>	众人之声合奏这首发出——不再为奴宣战！
 <P>It is the music of a people who will not be slaves again
