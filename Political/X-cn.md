@@ -77,7 +77,7 @@ https://x.com/AlexandreA23520/status/2062699365240848669?s=20 都喜欢说经济
 <p>生活随笔  https://x.com/AlexandreA23520/status/2083858567480901894?s=20
 <p>毋明释得罪言痴语 https://x.com/AlexandreA23520/status/2084277129903223291?s=20
 <p>独立思考 https://x.com/AlexandreA23520/status/2036757360065012049  https://x.com/AlexandreA23520/status/2030370786196783240?s=20
-  
+<p>华人基督徒 https://x.com/AlexandreA23520/status/2086043969499328581?s=20****</p>
 <p>
 <p>
 <p>
