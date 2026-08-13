@@ -9,20 +9,17 @@ G-Eazy - Scary Nights：藍V和大V尤其像的危險迷幻狂歡。<p>
 MGK - Till I Die：至死不渝的偏執與極端感。<p>
 DAX - Dear Alcohol（收尾）：帶有強烈自我反思與清醒後的沉淪感。<p>
 X中文圈的蓝V像极了美国饶舌艺人G-Eazy，包装得非常炫酷实力远远落后且不知。<p>
-https://x.com/AlexandreA23520/status/2062051437065249170?s=20   X  疯人院<P>
 https://x.com/AlexandreA23520/status/2062111533493309524?s=20 X全球左翼同根生<P>
 https://x.com/AlexandreA23520/status/2062699365240848669?s=20 都喜欢说经济经济经济，那就从经济上讲，中共还能活到现在与全球主义的利益脱不开干系。
 <p></p>X找工作 https://x.com/0xSilver_Time/status/2040263201351483491
 <p></p>X九州邦联    https://x.com/AlexandreA23520/status/2036045803400106298
 <p></p>X五笔教学    https://x.com/AlexandreA23520/status/2040557370615513415
-<p>X机器账号   https://x.com/MTsumugi50262/status/2066390697167442021?s=20
 <p>X 独派 https://x.com/AlexandreA23520/status/2074489094114263489?s=20
 <p>x 翻墙 https://x.com/AlexandreA23520/status/2074496506057597219?s=20
 <p>X 翻墙 https://x.com/AlexandreA23520/status/2074496484293390779?s=20
 <p>X 中国足球洗 https://x.com/AlexandreA23520/status/2074501672941019142?s=20
 <p>X 阿卡姆疯人院 https://x.com/AlexandreA23520/status/2062051437065249170?s=20
 <p>中华人民共和国不等于中华民国 https://x.com/AlexandreA23520/status/2060281202523902283?s=20
-<p>X 本市户籍姆疯人院  https://x.com/AlexandreA23520/status/2058096370058412211?s=20
 <p>X 万简齐发 南蛮入侵 https://x.com/AlexandreA23520/status/2057806490933805427?s=20
 <p>X 非人类出生 https://x.com/AlexandreA23520/status/2057723729363513631?s=20
 <p>气候变化  https://x.com/AlexandreA23520/status/2057391352430915902?s=20
@@ -33,7 +30,6 @@ https://x.com/AlexandreA23520/status/2062699365240848669?s=20 都喜欢说经济
 <p>陈云促成中国成现在这般  https://x.com/AlexandreA23520/status/2054836128214335712?s=20
 <p>器官移植 https://x.com/AlexandreA23520/status/2053492601500963119?s=20
 <p>累了就休息 https://x.com/AlexandreA23520/status/2053442833009529207?s=20
-<p>白鸦  https://x.com/AlexandreA23520/status/2053401923362136428?s=20
 <p>法治/法制  https://x.com/AlexandreA23520/status/2052700618867769792?s=20
 <p>商人无祖国 https://x.com/AlexandreA23520/status/2051962061945729050?s=20
 <p>海外各派系构思 一套体制  https://x.com/AlexandreA23520/status/2051595023968559535?s=20
