@@ -78,7 +78,7 @@ https://x.com/AlexandreA23520/status/2062699365240848669?s=20 都喜欢说经济
 <p>毋明释得罪言痴语561后 https://x.com/AlexandreA23520/status/2084277129903223291?s=20
 <p>毋明释得罪痴语1 https://x.com/AlexandreA23520/status/2034959558540480859
 <p>毋明释得罪痴语120-240 https://x.com/AlexandreA23520/status/2035908502292410471
-<p>毋明释得罪痴语241- https://x.com/AlexandreA23520/status/2039769137145086174
+<p>毋明释得罪痴语241-499 https://x.com/AlexandreA23520/status/2039769137145086174
 <p>毋明释得罪言痴语 500-561  https://x.com/AlexandreA23520/status/2087772692833292622?s=20</p>
 <p>独立思考 https://x.com/AlexandreA23520/status/2036757360065012049  https://x.com/AlexandreA23520/status/2030370786196783240?s=20
 <p>华人基督徒 https://x.com/AlexandreA23520/status/2086043969499328581?s=20****</p>
