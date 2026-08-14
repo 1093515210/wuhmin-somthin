@@ -84,6 +84,7 @@ It is the future that they bring when tomorrow comes!<P>
 他们给明天带来的是嶄新希望！
 
 CLAUDE翻译版本
+
 <img width="812" height="666" alt="image" src="https://github.com/user-attachments/assets/50379793-c60a-4ea7-9ad2-fc52822e2d2d" />
 
 <img width="745" height="326" alt="image" src="https://github.com/user-attachments/assets/72bb00bf-db6c-481b-b28b-65fee86f6f33" />
