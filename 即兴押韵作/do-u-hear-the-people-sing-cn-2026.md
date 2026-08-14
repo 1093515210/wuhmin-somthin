@@ -45,3 +45,21 @@ Do you hear the people sing? Singing a song of angry men?
 <P>When the beating of your heart echoes the beating of the drums
 <P>	一段全新的生活明日不再泡汤！
 <P>	There is a life about to start when tomorrow comes</P>
+
+# 音乐剧版尾
+## 副歌
+Do you hear the people sing? Lost in the valley of the night?<P>
+Its is the music of the people who are climbing to the light<P>
+For the wretched of the earth there is a flame that never dies<P>
+Even the darkest night will end and sun will rise<P>
+
+## 主歌
+We will live again in freedom in the garden of the lord<P>
+We will walk behind the plough-share we will put away the sword<P>
+The chain will be broken and all men have their reward<P>
+
+## 副歌
+Will you join in our crusade? Who will be strong and stand with me?<P>
+Somewhere beyond the barricade is there a world you long to see?<P>
+Do you hear the people sing? Say do you hear the distant drums?<P>
+It is the future that they bring when tomorrow comes!<P>
