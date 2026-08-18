@@ -12,8 +12,8 @@
 <P>	Futto omoidasu Genki desu ka?
 <P>	Yume wo oikakete hanareta machi
 <P>	Miokutte kureta ano haru no hi
-<P>	迎面吹来不冷不热微风拂过脸庞
-<P>	举头眺望东京都的，繁华天空上方
+<P>	温吞的风吹来不冷不热拂过脸庞
+<P>	举头眺望东京都的，淡淡天空上方
 <P>	住在远方的您突然间进入了我的回想
 <P>	想关心说句问候，只吐出了安康
 <P>	那年我离开了小镇，去追逐我的梦想！
@@ -63,7 +63,7 @@
 <P>	Shinpai kaketakoto Sasae tekuretakoto
 <P>	Ima kokoro kara arigatou
 <P>	无论遇上了什么困难家永远是最后避风港
-<P>	你总是絮叨站在我的身边如一尊像
+<P>	你总是不语站在我的身边如一尊像
 <P>	感谢您让我心生担忧也感谢你与我的连结
 <P>	由衷发自内心道一声谢谢
 
@@ -86,7 +86,7 @@
 <P>	Boku nara mou daijoubu dakara
 <P>	慢慢褪去那份不靠谱终将从懵懂进阶成熟
 <P>	请您全力放松轮到我给您生活享受
-<P>	年长了不要如同从前请放下那些徒增难受
+<P>	年长了不要像从前般请赶走那些令你难受
 <P>	我现在已能独自适应这份节奏
 
 # 副歌
@@ -100,8 +100,8 @@
 <P>	Anata no negau youna boku ni narete imasu ka?
 <P>	Sonna koto wo kangaeru
 <P>	Ima kokoro kara arigatou
-<P>	能成为你们的孩子啊可以多年修来的福分
+<P>	能成为你们的孩子啊可是多年修来的福分
 <P>	自豪地讲出这句话不必要扪心自问
 <P>	曾经让你们过多操心如今已完全长大成人
-<P>	考虑这些事希望你们记得
+<P>	我正想这些事希望你记得
 <P>	由衷发自内心道一声谢谢
