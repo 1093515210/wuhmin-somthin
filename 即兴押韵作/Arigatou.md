@@ -73,7 +73,7 @@
 <P>	Kaeshite mo kaeshite mo kaeshikirenai
 <P>	Kono kansha to keii wo tsutae tai
 <P>	家庭的养育构成财富这一世无法还清
-<P>	用音乐的感情来表达这份至高的尊敬
+<P>	用音乐的感情来表述这份至高的尊敬
 
 # 副歌
 <P>	頼りなかった仆も少し大人になり
