@@ -64,7 +64,7 @@
 <P>	Ima kokoro kara arigatou
 <P>	无论遇上了什么困难家永远是最后避风港
 <P>	你总是不语站在我的身边如一尊像
-<P>	感谢您让我心生担忧也感谢你与我的连结
+<P>	感谢你让我心生担忧也感谢你与我的连结
 <P>	由衷发自内心道一声谢谢
 
 # 桥段
@@ -85,7 +85,7 @@
 <P>	Sorosoro ii nendo shou Tanoshite kurashite kudasai
 <P>	Boku nara mou daijoubu dakara
 <P>	慢慢褪去那份不靠谱终将从懵懂进阶成熟
-<P>	请您全力放松轮到我给您生活享受
+<P>	请你全力放心轮到我给你生活享受
 <P>	年长了不要像从前般请赶走那些令你难受
 <P>	我现在已能独自适应这份节奏
 
