@@ -63,7 +63,7 @@
 <P>	Shinpai kaketakoto Sasae tekuretakoto
 <P>	Ima kokoro kara arigatou
 <P>	无论遇上了什么困难家永远是最后避风港
-<P>	你总是不语站在我的身边如一尊像
+<P>	你總是真誠地守候站在我的那一旁
 <P>	感谢你让我心生担忧也感谢你与我的连结
 <P>	由衷发自内心道一声谢谢
 
